@@ -1,3 +1,4 @@
+[how read kernel efficiently?](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/how-read-kernel-blog/master/README.md). 06/20/2020      
 [my first game](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/my-first-game-blog/master/README.md).   
 [university and experience](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/university-and-exprience-blog/master/README.md) 03/09/2020.   
 [cockroach-theory](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/cockroach-theory-blog/master/README.md) 02/29/2020.    
