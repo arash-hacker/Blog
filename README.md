@@ -1,5 +1,5 @@
 
-[design patterns , all in one ](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/design-pattern-all-in-one-blog/master/README.md). 08/11/2020       
+[design patterns , all in one ](https://github.com/Arshiamidos/design-pattern-all-in-one-blog/blob/master/README.md). 08/11/2020       
 [7 sins are good ](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/7-sins-are-good-blog/master/README.md). 08/01/2020     
 [how read kernel efficiently?](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/how-read-kernel-blog/master/README.md). 06/20/2020      
 [my first game](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/my-first-game-blog/master/README.md).   
