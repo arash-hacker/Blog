@@ -1,3 +1,5 @@
+[Your Hero Is DEAD !!](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/your-hero-is-dead-blog/master/README.md)
+
 [cognitive biases 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/cognitive-biases-101/master/README.md) 08/18/2020         
 
 [code smells 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/code-smells-101/master/README.md) 08/18/2020         
