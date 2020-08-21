@@ -1,4 +1,6 @@
-[coders at work summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/coders-at-work-blog/master/README.md) 08/18/2020         
+[clean coders summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-coders-blog/master/README.md) 08/20/2020            
+
+[coders at work summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/coders-at-work-blog/master/README.md) 08/20/2020         
 
 [cognitive biases 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/cognitive-biases-101/master/README.md) 08/18/2020         
 
