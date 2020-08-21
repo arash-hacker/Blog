@@ -1,3 +1,5 @@
+[hackers and painters](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/hackers-painters-blog/master/README.md) 08/20/2020       
+
 [clean arch summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-arch-blog/master/README.md) 08/20/2020       
 
 [clean code summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-code-blog/master/README.md) 08/20/2020       
