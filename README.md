@@ -1,14 +1,16 @@
+[HL VS ML](https://raw.githubusercontent.com/Arshiamidos/human-learning-vs-machine-learning-blog/master/README.md) 10/12/2020      
+
 [hackers and painters](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/hackers-painters-blog/master/README.md) 08/20/2020       
 
-[clean arch summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-arch-blog/master/README.md) 08/20/2020       
+[clean arch summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-arch-blog/master/README.md) 09/20/2020       
 
-[clean code summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-code-blog/master/README.md) 08/20/2020       
+[clean code summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-code-blog/master/README.md) 09/15/2020       
 
-[clean coders summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-coders-blog/master/README.md) 08/20/2020            
+[clean coders summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/clean-coders-blog/master/README.md) 09/13/2020            
 
-[coders at work summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/coders-at-work-blog/master/README.md) 08/20/2020         
+[coders at work summary](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/coders-at-work-blog/master/README.md) 09/02/2020         
 
-[cognitive biases 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/cognitive-biases-101/master/README.md) 08/18/2020         
+[cognitive biases 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/cognitive-biases-101/master/README.md) 09/18/2020         
 
 [code smells 101](https://arshiamidos.github.io/blog/?id=https://raw.githubusercontent.com/Arshiamidos/code-smells-101/master/README.md) 08/18/2020         
 
