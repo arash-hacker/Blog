@@ -11,8 +11,9 @@ You can apply this routing to your daily challenges, task, work, anything need a
 ## Describe what is your solutions based on above parameters.    
 
 Context/POV (point of view).    
-...solution #1: pros,cons (trade-off by simulate 7 steps).    
-...solution #2: pros,cons (trade-off by simulate 7 steps).    
+...solution #1: pros,cons (trade-off by simulate(test) 7 steps).    
+...solution #2: pros,cons (trade-off by simulate(test) 7 steps).    
+...
 
 ```
 Some Contexts.      
