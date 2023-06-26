@@ -33,5 +33,8 @@ each solution has many connections with other component. You can think it as a g
 You can change direction of graph, create new edge, empty or remove the edge. (`LEFT RIGHT NEW EMPTY`).    
 change color of node to another(idiom), It means just change state. (`RED GREEN BLUE`).    
 make component big, small, large. Change the size (`SMALL MEDIUM LARGE`).      
+size, shape, direction, ctx, entity crude: add, remove, update, replace, union, intersect.
+
+subtitude/replace, combine, adapt new porpose(same mechanic, diff goal), modify(magnify, minify), reverse, rearrange, eliminate, put another use-case
 
 LERN SMAL RGB
