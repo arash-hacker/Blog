@@ -274,3 +274,5 @@ wake up late, near standup</br>
 no work until it's too late</br>
 see the funny video and read another thing</br>
 </hr>
+Smile dosnyt kill , action kills
+ترس از ترس
