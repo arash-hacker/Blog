@@ -269,3 +269,8 @@ prepare to oportunities</br>
 Codes just need to be tought, not to be wrote</br>
 Repeative is boring. Soon or late.No plan is boring.No progressive is also boring.</br>
 Dont let outside water/problem ... Get inside you and throw err for you</br>
+</hr>
+wake up late, near standup</br>
+no work until it's too late</br>
+see the funny video and read another thing</br>
+</hr>
