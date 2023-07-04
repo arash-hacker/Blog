@@ -100,3 +100,22 @@ Every thing works as network, at least with two node and one edge
 Dynamic shirt monitor
 By default brain store infotmation as focus capaxity.chess to store 5 house at time
 Lighter with sigar 9
+
+
+
+--------------------
+ZEN:
+Write concern think later
+ Dnt think any think
+ Make problems and concern funny frrindly
+ Focus on body movement
+ Dream smthng dreamy.
+ Who am i
+ Breath
+ Kindness
+ Noting
+ Do one thing and only one thing.!!!
+---------------------
+7-Chess blindfold
+  *-rewind from focus score
+  *-Remeber/Think  marathon
