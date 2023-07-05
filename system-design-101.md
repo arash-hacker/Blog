@@ -1,8 +1,7 @@
 
 <pre>
-  system design
+  <h1>system design</h1>h1
 
-staff guide, how will work, what are best your project
 
   •  Load balancer
   ◦  Active-passive
@@ -22,6 +21,7 @@ Database
             ⁃  vertical
   ◦  Denormalization
   ◦  SQL tuning
+  
   •  NoSQL
   ◦  Key-value store
   ◦  Document store
@@ -98,8 +98,8 @@ low level design
 
 -------- architect ---------
 Clean architect,
- robust,
- maintainable, 
+robust,
+maintainable, 
 testibility, 
 resistance, 
 availiblity,       
@@ -138,6 +138,5 @@ CQRS (Command Query Responsibility Segregation)
 Domain event
 Event sourcing 
 --------------------------
-
 
 </pre>
