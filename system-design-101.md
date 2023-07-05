@@ -1,6 +1,6 @@
 
 <pre>
-  <h1>system design</h1>h1
+  <h1>system design</h1>
 
 
   •  Load balancer
