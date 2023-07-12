@@ -84,6 +84,7 @@ how much developer need
 
 Database per Service -
 Saga 
+2PC      
 API Composition 
 CQRS 
 Domain event -
@@ -129,7 +130,7 @@ long process,
     Layered Pattern (n-tier architecture)
     Service-Oriented Architecture (SOA)    
 -----------------------------
-
+* Data management
 Database per Service
 Shared database
 Saga
@@ -138,5 +139,27 @@ CQRS (Command Query Responsibility Segregation)
 Domain event
 Event sourcing 
 --------------------------
+Architect patterns
+		Layered (n-tier) Architecture
+		Microservices Architecture
+		Event-Driven Architecture
+		Serverless Architecture
+		Command Query Responsibility Segregation (CQRS)
+		Event Sourcing
+		API Gateway
+		Peer-to-Peer Architecture
+		Model-View-Controller (MVC)
+		Service-Oriented Architecture (SOA)
+	  Black Board
+	  Pipe-filter
 
+Http1, Http1.1 Http2 , Http3
+Keep-alive
+Pipeline, non-pipeline-
+Head-of-line blocking
+
+-----------
+
+Storage
+Block-file-object
 </pre>
