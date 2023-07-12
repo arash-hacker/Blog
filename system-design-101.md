@@ -142,7 +142,7 @@ Event sourcing
 Architect patterns
 		Layered (n-tier) Architecture
 		Microservices Architecture
-		Event-Driven Architecture
+		Event-Driven Architecture(Pub/Sub)
 		Serverless Architecture
 		Command Query Responsibility Segregation (CQRS)
 		Event Sourcing
@@ -150,6 +150,7 @@ Architect patterns
 		Peer-to-Peer Architecture
 		Model-View-Controller (MVC)
 		Service-Oriented Architecture (SOA)
+		
 	  Black Board
 	  Pipe-filter
 
