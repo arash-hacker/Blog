@@ -286,20 +286,20 @@ Only 3 percent do calculation.
 Order someone to bring something
 
 
-is it legal to connect superbrain to yourself? 
+is it legal to connect superbrain to yourself?     
 
-If yiu are weak, everybody attacks you, make u weaker, blame u.but bein strong they afraid of you , silence, obeyance
-Ins of compaling for other to b complete, be proud of yourself
-Lonely and foolish
-2x world speed. 2x more learning 
-Design apocolypse game and free to do.
-There is no respect, there is only "dont care"
-The only limitation is your imagination, and only imaginationation is your limitation
-Any body can be you, if they are smarter than you
-Dont judje ppl with 100 ÷, but dont undrrstimate 90 percent
- Play 4 life play you, calc 4 life
- سخترین کار اسونترین کاراس
- Nose hile ralk
- علاقه یه چیزه ، چند علاقگی یه معضل
- Tunnel , water til kahzar
-ترس از ترس
+If yiu are weak, everybody attacks you, make u weaker, blame u.but bein strong they afraid of you , silence, obeyance    
+Ins of compaling for other to b complete, be proud of yourself    
+Lonely and foolish    
+2x world speed. 2x more learning     
+Design apocolypse game and free to do.     
+There is no respect, there is only "dont care"     
+The only limitation is your imagination, and only imaginationation is your limitation     
+Any body can be you, if they are smarter than you     
+Dont judje ppl with 100 ÷, but dont undrrstimate 90 percent      
+ Play 4 life play you, calc 4 life       
+ سخترین کار اسونترین کاراس       
+ Nose hile ralk      
+ علاقه یه چیزه ، چند علاقگی یه معضل      
+ Tunnel , water til kahzar         
+ترس از ترس       
