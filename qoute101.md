@@ -208,6 +208,15 @@ Dnt do mistakes that cant allow you more mistakes.</br>
 </br>
 یا راهی نیست یا مقبول نیس.</br>
 قایبلیت رام شدن ندارد</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
 Dignity always wins</br>
 Not solvable or not acceptable</br>
 </br>
@@ -284,7 +293,15 @@ Animated statue
 Pwn with pitty for onlooker
 Only 3 percent do calculation.
 Order someone to bring something
-
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
 
 is it legal to connect superbrain to yourself?     
 
@@ -298,6 +315,37 @@ The only limitation is your imagination, and only imaginationation is your limit
 Any body can be you, if they are smarter than you     
 Dont judje ppl with 100 ÷, but dont undrrstimate 90 percent      
  Play 4 life play you, calc 4 life       
+ every story can be learned by recently developed neurons.           
+you are not naive, you didn't see trained-data only.           
+      
+ You dint like games, you like mood , playing component envs.      
+      
+you are just a trained model with deep N           
+ppl can't solve problem bc marcov model is state of zero.           
+ you experience to create theory. theorist play with variable and hope someone impelement them.              
+you don't like topic, you like people who works on that topic.            
+ppl sometime blam other for their lack of intelligence (when reporter cheat gov to get visa).            
+ Change everthing , toleare nothing         
+         
+ How enjouing pain is masochist, but work out or playong game with happy pain is normal?            
+      
+Without test, ur just writing rand words      
+Less is less but less has more      
+ادمی که‌ تر میزنه، دنباله یاداوریه موفقیتاشه      
+Forgetness is forgiveness            
+Youtube with answers of chatgpt              
+there is no perfect company. but it's better for striving to best to have       
+feedback, performance review, friendly activity, sharp and openmind, empathy for perfection with a little OCD, place for learn, trust from c. level      
+      
+train to optimze X3       
+3d biliard.           
+your program is always right, the PL didn't assume all your context togehter.          
+Who ask, is who cares          
+What part of worl is working unlogicaly?         
+the best way to learn smth: TPTPTPTPTP...theory/practice /      
+blah blah in website to wow wow in kt.         
+you only remmeber when you are in sitation before and re-used word.         
+a world for experiment.           
  سخترین کار اسونترین کاراس       
  Nose hile ralk      
  علاقه یه چیزه ، چند علاقگی یه معضل      
