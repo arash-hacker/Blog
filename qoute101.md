@@ -351,3 +351,57 @@ a world for experiment.
  علاقه یه چیزه ، چند علاقگی یه معضل      
  Tunnel , water til kahzar         
 ترس از ترس       
+
+The more you store topics, tge more you expand your focus.       
+If you want be topnotch, be up2date .       
+Use word with that context and that rel to remember it well IRL         
+       
+           
+under common occasion, you wont rise to level of training, you sink to level of insticts.       
+under pressure, you dont rise the occasion, you will sink to level of training        
+       
+people who enjoy their work will promote to upper level       
+who is higher rank, spot the diffs and errors faster.       
+       
+
+
+your are in 1990 , simulate everythigng by compueters       
+       
+Rush cant be catched, only resident are effectfull       
+calc professional. by sources not forks.       
+       
+If every one has second chance, y we dont give bugs second chance?       
+       
+contest to participate in company meetings and be hired later.       
+       
+If they dont see your plan, thats not you       
+       
+Ppl see w their mind not by eye       
+       
+Tamir to deniss : how is related ? well there are people like that who have abstraction layer like that.!!          
+       
+Dead body elavatir go up       
+Never joke with so less nq than you       
+Nq=network quality       
+       
+number in hive hexagon find patterns       
+       
+If upu please everyone, you please no one.       
+If you please yourself only, everyone follow you       
+Fans because they love you, others bcs they track you       
+       
+      
+       
+The problem of adultness is, you can control your life, same as childhoud but you dont know it.       
+       
+Let kids ???       
+I born as hacker, live as hacker, die as hacker       
+Same data structure that creats code/solution, will create bug/problem too.       
+       
+when your eye can see only rgb range, why you brain can't think outside of your comf zone.       
+       
+life is beautiful but depending of how much your mind is free to travel.       
+       
+the only one who doesn't need to read book for managing/.... is who can think/anticipate faster. but nothing would be experience       
+       
+diff L5,L6 is about tel   ling concise, consistent story . not being right or wrong.       
