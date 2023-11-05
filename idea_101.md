@@ -101,7 +101,8 @@ Dynamic shirt monitor
 By default brain store infotmation as focus capaxity.chess to store 5 house at time
 Lighter with sigar 9
 
-
+10k computer algorithms with psudo code          
+Film about RI agent to learn life    
 
 --------------------
 ZEN:
