@@ -86,23 +86,23 @@ change vs code bg tag sepreatly
  cooking w/ AI recommend
 3 new toys like Rubic
 ----
-movie making w/ chatgpt
-chat to video
-game making with diffusion db
+movie making w/ chatgpt    
+chat to video        
+game making with diffusion db    
 -----------
 
-learning languages with gpt
-With thinking open male mind open.
-Correct memory by think and replace
-multiplier and draw and image by origami rules like x % < 
-1d game
-Every thing works as network, at least with two node and one edge
-Dynamic shirt monitor
-By default brain store infotmation as focus capaxity.chess to store 5 house at time
-Lighter with sigar 9
+learning languages with gpt         
+With thinking open male mind open.          
+Correct memory by think and replace        
+multiplier and draw and image by origami rules like x % <        
+1d game         
+Every thing works as network, at least with two node and one edge       
+Dynamic shirt monitor        
+By default brain store infotmation as focus capaxity.chess to store 5 house at time       
+Lighter with sigar 9       
 
-10k computer algorithms with psudo code          
-Film about RI agent to learn life    
+10k computer algorithms with psudo code              
+Film about RI agent to learn life       
 
 --------------------
 ZEN:
