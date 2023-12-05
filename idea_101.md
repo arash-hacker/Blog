@@ -104,19 +104,28 @@ Lighter with sigar 9
 10k computer algorithms with psudo code              
 Film about RI agent to learn life       
 
---------------------
-ZEN:
-Write concern think later        
- Dnt think any think.       
- Make problems and concern funny frrindly    
- Focus on body movement     
- Dream smthng dreamy.     
- Who am i    
- Breath      
- Kindness      
- Noting       
- Do one thing and only one thing.!!!      
----------------------
-7-Chess blindfold
-  *-rewind from focus score
-  *-Remeber/Think  marathon
+For fast paced brain there is so much time to enjoy          
+استرس نهان در شارایط قبلی          
+Gub to shoot every where expept ypu control it where not to shoot. Like sphwre.          
+          
+How would be a life with perfectv seconds             
+          
+Religeon is like framework, that uses people as part of system. Its prople that tend to be lazy or thirsty .          
+          
+Chess is life, but life is not chess          
+          
+Instead of iq, plan ahead, hold on memory, cache thing and analytize them. Then deeper level          
+          
+Fail in thinking distract ppl, ongoing focus mod lead you to zen zone          
+Infernal talk is misleafing focus          
+How kill internal talk when thinking          
+          
+Town all spk poemish          
+عادتا فراموش میشن و خوشیها به یاد میمونه          
+سختی کشیدن عادت شه، کوچکترین شادی به یاپگار تره          
+Value of everry friendship is up to minum damage not maximum benefits.          
+hold turbin, turn world in circl.          
+matching game with 3 items in sequence.          
+rotating chess board game like rubik with rope          
+
+
