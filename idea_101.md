@@ -62,7 +62,7 @@ One cbaracter for all games customised.
 Api center.              
 Mobile as node web3.              
 Read book snake like instead of begining.              
-+++++++Memobuiling.              
++++++++   Memobuiling.              
 write test by highlighting.              
 and drag and drop.              
 quote NFT and register your qoute.              
@@ -127,5 +127,5 @@ Value of everry friendship is up to minum damage not maximum benefits.
 hold turbin, turn world in circl.          
 matching game with 3 items in sequence.          
 rotating chess board game like rubik with rope          
-
+-----
 
