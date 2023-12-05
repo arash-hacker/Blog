@@ -14,4 +14,24 @@ No need rn
             7-music bg
             8- chess blindfold 
             9- multiple 4x4
-</pre>
+
+
+--------------------
+ZEN:
+Write concern think later        
+ Dnt think any think.       
+ Make problems and concern funny frrindly    
+ Focus on body movement     
+ Dream smthng dreamy.     
+ Who am i    
+ Breath      
+ Kindness      
+ Noting       
+ Do one thing and only one thing.!!!      
+---------------------
+7-Chess blindfold
+  *-rewind from focus score
+  *-Remeber/Think  marathon
+
+
+  </pre>
