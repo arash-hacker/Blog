@@ -183,6 +183,8 @@ rotating chess board game like rubik with rope
           Homophones: Flour and Flower
           Hypernyms: Vehicle (includes cars, bicycles, trucks)
           Hyponyms: Rose (a type of flower)
+
+          ** Learning with different context has more stability repeating in same platform **
           
           There is always a narrator i  your mind 
           Focus is seq of related image, find distract and corrwct it 
