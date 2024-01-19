@@ -128,4 +128,73 @@ hold turbin, turn world in circl.
 matching game with 3 items in sequence.          
 rotating chess board game like rubik with rope          
 -----
+          Space game alcuibere
+          Law is theory,run is exp
+          They told if it is clever way(short cut) then its cheating. 
+          If its simple its wrong
+          If it from exp its good, even simple.
+          There is no savong in multitasking.
+          Shoplifter make onlibe business bigger.
+          What if bullet shots are not from familar gun?u can kill nay one.
+          Bodysctivist from mcdonald.
+          tansgender from psyco
+          env act from oil companies 
+          qtrix 4d
+          w/ exp can check new exp is old or no
+          w/ little waste can check it's waste or na
+          Docial or cap.
+          W ia moral in eco? Wortg it?
+          Caryle as trusts are help?
+          Sid mier way
+          با نه گفتن بیشتر به دست میاد تا یس
+          
+          چیزی که مقاومت میکنی نقطه پیشرفته. پس بشکنش
+          همونطچر که شاخه‌ی بدون میوه چوبی بیش نیس. فکت بدون کاربرد فقط زمان تلف کنه.
+          تجسم چندگانه باعق تقویت میشه نه متوالی 
+          Get fdbk not by thumb. By analyz content
+          هیچ وقت از بدبختیات نگو. همه دنبال بهونن.
+          Prefer second plaxe in every thing ins 1in one
+          we are all focus
+          generes of music to type of people theory 
+          a 6 robot who kills his victom by hijacking account
+          
+          If guy has no one to file: like homeless.
+          Unhappy socrat can fine way to satisfy. But happy idiot, shortly will be tired.
+          How implement virtualization in society.
+          Movie: child under five has genetic for rejuvinating adults. Keep them. Kill them. Export them. Is that moral?
+          
+          Effect is mpre when do seq ins patallel.
+          Seq task provide faster stronger conn
+          marriage is about flexibility, openmind, hard to succeed, and forgiveness.
+          
+          open problem for any one to solve ???
+          everything is skill based: we don't have pre-determinated NN in our brain.    
+          anchor mind in another topic
+          
+          
+           هر یاداوری، مربوط به واکشی از مغز در کانتکس و لحظه مربوطه است.با به خاطر سپاری در کانکس های مختلف شانس یاداوری افزایش میابد. ضد لایتنر که هر روز تکراری میخونی.
+          فزسکو: کتاب , تیوی ، 
+          
+          ذهن با بک متد رنگش خشک میشود، کاربرد رنگ های مخالف دذ رفرش سازی 
+          برای باداوری حداقل دو المان نیاز است: کلمه با مشابه، کاربرد،متضاد،ضد کاربرد...
+          اگر ساپورتر فراموش شود ، کلمه اصلی به یاد نمیاد.
+          Synonyms: Happy and Joyful
+          Antonyms: Hot and Cold
+          Homophones: Flour and Flower
+          Hypernyms: Vehicle (includes cars, bicycles, trucks)
+          Hyponyms: Rose (a type of flower)
+          
+          There is always a narrator i  your mind 
+          Focus is seq of related image, find distract and corrwct it 
+          ....
+          movie: new sex addictive as sneeze.
+          movie: say word and explode NN desweg ubertreiben
+          what you learned, can be changed.
+          عامل ضد پیشرفت ترس و تنبلیه
+ 
+-----
+
+
+
+
 
