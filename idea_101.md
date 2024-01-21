@@ -82,15 +82,15 @@ space\tab programming language.
 san Tzu quotes.              
 color multipication.              
 SO with real monry.              
-----
+
 change vs code bg tag sepreatly
  cooking w/ AI recommend
 3 new toys like Rubic
-----
+
 movie making w/ chatgpt    
 chat to video        
 game making with diffusion db    
------------
+
 
 learning languages with gpt         
 With thinking open male mind open.          
@@ -110,36 +110,18 @@ For fast paced brain there is so much time to enjoy
 Gub to shoot every where expept ypu control it where not to shoot. Like sphwre.          
           
 How would be a life with perfectv seconds             
-          
-Religeon is like framework, that uses people as part of system. Its prople that tend to be lazy or thirsty .          
-          
-Chess is life, but life is not chess          
-          
-Instead of iq, plan ahead, hold on memory, cache thing and analytize them. Then deeper level          
-          
-Fail in thinking distract ppl, ongoing focus mod lead you to zen zone          
-Infernal talk is misleafing focus          
+    
 How kill internal talk when thinking          
           
 Town all spk poemish          
-عادتا فراموش میشن و خوشیها به یاد میمونه          
-سختی کشیدن عادت شه، کوچکترین شادی به یاپگار تره          
-Value of everry friendship is up to minum damage not maximum benefits.          
+Space game alcuibere      
 hold turbin, turn world in circl.          
 matching game with 3 items in sequence.          
-rotating chess board game like rubik with rope          
------
-          Space game alcuibere
-Law is theory,run is exp          
-They told if it is clever way(short cut) then its cheating.           
-If its simple its wrong          
-If it from exp its good, even simple.          
-There is no savong in multitasking.          
-Shoplifter make onlibe business bigger.          
-What if bullet shots are not from familar gun?u can kill nay one.          
-Bodysctivist from mcdonald.          
-tansgender from psyco          
-env act from oil companies           
+rotating chess board game like rubik with rope   
+What if bullet shots are not from familar gun?u can kill nay one.    
+
+
+
 qtrix 4d          
 w/ exp can check new exp is old or no          
 w/ little waste can check it's waste or na          
@@ -147,14 +129,7 @@ Docial or cap.
 W ia moral in eco? Wortg it?          
 Caryle as trusts are help?          
 Sid mier way          
-با نه گفتن بیشتر به دست میاد تا یس          
-          
-چیزی که مقاومت میکنی نقطه پیشرفته. پس بشکنش          
-همونطچر که شاخه‌ی بدون میوه چوبی بیش نیس. فکت بدون کاربرد فقط زمان تلف کنه.          
-تجسم چندگانه باعق تقویت میشه نه متوالی           
-Get fdbk not by thumb. By analyz content          
-هیچ وقت از بختیات نگو. همه دنبال بهنن.          
-Prefer second plaxe in every thing ins 1in one          
+
 we are all focus          
 generes of music to type of people theory           
 a 6 robot who kills his victom by hijacking account          
@@ -163,38 +138,17 @@ If guy has no one to file: like homeless.
 Unhappy socrat can fine way to satisfy. But happy idiot, shortly will be tired.          
 How implement virtualization in society.          
 Movie: child under five has genetic for rejuvinating adults. Keep them. Kill them. Export them. Is that moral?          
-          
-Effect is mpre when do seq ins patallel.          
-Seq task provide faster stronger conn          
-marriage is about flexibility, openmind, hard to succeed, and forgiveness.          
+           
           
 open problem for any one to solve ???          
 everything is skill based: we don't have pre-determinated NN in our brain.              
-anchor mind in another topic          
-          
-          
- هر یاداوری، مربوط به واکشی از مغز در کانتکس و لحظه مربوطه است.با به خاطر سپاری در کانکس های مختلف شانس یاداوری افزایش میابد. ضد لایتنر که هر روز تکراری میخونی.          
-فزسکو: کتاب , تیوی ،           
-          
-ذهن با بک متد رنگش خشک میشود، کاربرد رنگ های مخالف دذ رفرش سازی           
-برای باداوری حداقل دو المان نیاز است: کلمه با مشابه، کاربرد،متضاد،ضد کاربرد...          
-اگر ساپورتر فراموش شود ، کلمه اصلی به یاد نمیاد.          
-Synonyms: Happy and Joyful          
-Antonyms: Hot and Cold          
-Homophones: Flour and Flower          
-Hypernyms: Vehicle (includes cars, bicycles, trucks)          
-Hyponyms: Rose (a type of flower)          
-
-** Learning with different context has more stability repeating in same platform **          
+anchor mind in another topic               
           
 There is always a narrator i  your mind           
 Focus is seq of related image, find distract and corrwct it           
-....          
+      
 movie: new sex addictive as sneeze.          
-movie: say word and explode NN desweg ubertreiben          
-what you learned, can be changed.          
-عامل ضد پیشرفت ترس و تنبلیه          
------
+movie: say word and explode NN desweg ubertreiben               
 ppl as try/catch, normal as try, fierce as cath          
 
 
