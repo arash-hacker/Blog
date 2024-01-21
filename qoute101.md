@@ -405,3 +405,58 @@ life is beautiful but depending of how much your mind is free to travel.
 the only one who doesn't need to read book for managing/.... is who can think/anticipate faster. but nothing would be experience       
        
 diff L5,L6 is about tel   ling concise, consistent story . not being right or wrong.       
+
+          
+Religeon is like framework, that uses people as part of system. Its prople that tend to be lazy or thirsty .          
+          
+Chess is life, but life is not chess          
+          
+Instead of iq, plan ahead, hold on memory, cache thing and analytize them. Then deeper level          
+          
+Fail in thinking distract ppl, ongoing focus mod lead you to zen zone          
+Infernal talk is misleafing focus      
+
+عادتا فراموش میشن و خوشیها به یاد میمونه          
+سختی کشیدن عادت شه، کوچکترین شادی به یاپگار تره          
+Value of everry friendship is up to minum damage not maximum benefits.          
+
+Law is theory,run is exp          
+They told if it is clever way(short cut) then its cheating.           
+If its simple its wrong          
+If it from exp its good, even simple.          
+There is no savong in multitasking.          
+Shoplifter make onlibe business bigger.                
+Bodysctivist from mcdonald.          
+tansgender from psyco          
+env act from oil companies           
+
+
+با نه گفتن بیشتر به دست میاد تا یس          
+          
+چیزی که مقاومت میکنی نقطه پیشرفته. پس بشکنش          
+همونطچر که شاخه‌ی بدون میوه چوبی بیش نیس. فکت بدون کاربرد فقط زمان تلف کنه.          
+تجسم چندگانه باعق تقویت میشه نه متوالی           
+Get fdbk not by thumb. By analyz content          
+هیچ وقت از بخیات نگو. همه دنبال بهنن.         
+عامل ضد پیشرفت ترس و تنبلیه 
+
+Prefer second plaxe in every thing ins 1in one          
+       
+Effect is mpre when do seq ins patallel.          
+Seq task provide faster stronger conn          
+marriage is about flexibility, openmind, hard to succeed, and forgiveness.  
+
+
+ هر یاداوری، مربوط به واکشی از مغز در کانتکس و لحظه مربوطه است.با به خاطر سپاری در کانکس های مختلف شانس یاداوری افزایش میابد. ضد لایتنر که هر روز تکراری میخونی.          
+فزسکو: کتاب , تیوی ،           
+          
+ذهن با بک متد رنگش خشک میشود، کاربرد رنگ های مخالف دذ رفرش سازی           
+برای باداوری حداقل دو المان نیاز است: کلمه با مشابه، کاربرد،متضاد،ضد کاربرد...          
+اگر ساپورتر فراموش شود ، کلمه اصلی به یاد نمیاد.  اکثر ساپورتر ها تصویری هستند.        
+Synonyms: Happy and Joyful          
+Antonyms: Hot and Cold          
+Homophones: Flour and Flower          
+Hypernyms: Vehicle (includes cars, bicycles, trucks)          
+Hyponyms: Rose (a type of flower)          
+
+** Learning with different context has more stability repeating in same platform **     
