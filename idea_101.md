@@ -195,7 +195,7 @@ movie: say word and explode NN desweg ubertreiben
 what you learned, can be changed.          
 عامل ضد پیشرفت ترس و تنبلیه          
 -----
-
+ppl as try/catch, normal as try, fierce as cath          
 
 
 
