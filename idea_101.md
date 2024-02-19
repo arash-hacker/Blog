@@ -149,7 +149,30 @@ Focus is seq of related image, find distract and corrwct it
       
 movie: new sex addictive as sneeze.          
 movie: say word and explode NN desweg ubertreiben               
-ppl as try/catch, normal as try, fierce as cath          
+ppl as try/catch, normal as try, fierce as cath     
+
+        
+idea: charandiat farsi about proverbs        
+Movie:a genius among us        
+wordup: spanish        
+Movie:batman in medivial        
+Gpt movie makjg        
+Movie: socrate in old athene w new tech        
+        
+Msur 2**n iqs        
+New personality tst        
+Ask aana        
+Ai fond picture of yours        
+New musoc genre : all in         
+        
+Newappr sunscr: foldable schreen        
+        
+mbti2: self:other tech:politic:econom:math:sport:art brave:frightent??        
+senior eagle-eye software engineer        
+prismatic/hexagonal file write and reader multiple times        
+Mental gym        
+every rural project matters / even small        
+
 
 
 
