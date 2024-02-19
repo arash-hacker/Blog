@@ -455,8 +455,75 @@ marriage is about flexibility, openmind, hard to succeed, and forgiveness.
 اگر ساپورتر فراموش شود ، کلمه اصلی به یاد نمیاد.  اکثر ساپورتر ها تصویری هستند.        
 Synonyms: Happy and Joyful          
 Antonyms: Hot and Cold          
-Homophones: Flour and Flower          
+Homophones: Flour and Flower   
+
 Hypernyms: Vehicle (includes cars, bicycles, trucks)          
 Hyponyms: Rose (a type of flower)          
 
 ** Learning with different context has more stability repeating in same platform **     
+فرق فقیر و غنی در نوع سختی نیس.      
+غنی کانکشن، فرصت، دانش، و فرزتر عمل میکند      
+دسترسی به سببه سازب دارد و مژلع تر است      
+هر دو اگر سختی یکسان داشته باشند، غنی سقف رکورد را بالاتر میبرد(دوپینگ، کراتین،...). در صورتی که ضعیف شانی کمتری برای امتحان دارد و فرصت ریسک کمتر دارد مگر امکاناتی را قربانی کند!!!      
+      
+اگر جنیور برای cto اقدام کند، تجربه کمتری دارد، اکسس اکسپی کمتر دارد cache، سرعت کمتر cpu, حافظه کمتر دارد mem.و درخت کم عمق و کم عرضتری دارد.      
+برای همین شیادان      
+not bywe learn only from examples      
+If you dont have prior, u dnt waste time      
+      
+تک کانکشن زود فراموش میشود      
+همجواری با داده های قبلی٬ تثبیت رو تضمین میکنه      
+به خاطر سپاری با کانکس های مختلف همان بازسازی همجواری است      
+اتصال با کلمات قبلی یادگیری شده و کانتکسهای خلاق      
+meaning<->voice-<>word-<image>      
+      
+people only think about nowdays,. what about ripen a fruit in mind of future offsprings      
+      
+      
+Duration can be imaged,  is duration can be in mind NN      
+      
+      
+کسی که طولانی متجسم کند، اتفاقات را با دامنه بیشتر نگه میدارد.قبل بعد حین پیش      
+مشکل دیندار فاسد، هم خدا هم خرماس      
+      
+شادمانی هر کس به پارامتر های محیطی بستگی دارد.پول، اعتبار،قناعت، دوستی، عشق، ...معنوی و مادی.      
+      
+شادی صرفا راحتی نیس.احساس رضابت از شکستن رکورد. تحمل سختی در مقابل نتیجه(نه پاداش)(گرفتن هلمت پس از ۹ ساعت)      
+فراتر از کامفورت زون رفتن.      
+شادی =°= اتدرفین پس زثاد جدیش نگیر      
+      
+More i grown up, more believe ppl are simple(( not sophisticated dumb      
+      
+      
+Yout child name can effext their distiny e      
+X they choose by naming sprt in school. Either lazy or endeavor      
+      
+بازی کن. نظرشو یپرس. از دور نگاش کن      
+      
+کسی کخ نخاد بازی نموم شه، سعی خطا میره      
+درثورطی که راه حل مشحصه      
+      
+satisfaction comes through games(shpoing, play, dance, party, ...)      
+also hardship at begining has dis-statisfaction      
+but afterward it continues to bring satisfaction      
+quantity and quality and distributation of satisfaction is dilemia and depends on each personality .like investing      
+(think big)love challenges(love hardship),have solutions      
+      
+when we cant change it, we accept i t      
+      
+critical thinking:      
+is this fact correct?      
+are these facts connected correctly?       
+what other sibling that missed?      
+      
+مشکلات خانوتده و جامعه جزو شانس حساب میشن      
+      
+Poor watstes.      
+Every company is evil, it depends on y to findout      
+هیچ وقت ظاهر لینکدین دیگران رو با باطن تکنیکال خودتون مقابسه نکنید.      
+      
+you only need larger, faster,long-term cpu to succeed!!!      
+expectation make you laugh      
+instead of hands-on then expericen we go mostly with imagine/rule-based to virtual experience      
+when you care about something, you will see all beauty,flaw and features.own the project to provide feedback      
+
