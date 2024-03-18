@@ -525,5 +525,40 @@ Every company is evil, it depends on y to findout
 you only need larger, faster,long-term cpu to succeed!!!      
 expectation make you laugh      
 instead of hands-on then expericen we go mostly with imagine/rule-based to virtual experience      
-when you care about something, you will see all beauty,flaw and features.own the project to provide feedback      
+when you care about something, you will see all beauty,flaw and features.own the project to provide feedback   
 
+<pre>
+      هر چیزی به استفادش ربط داره
+یادگیری چیزها و کلماتی که الان به دردمون نمیخوره٬ فقط وقت تلف کردنه : هر چند افق دید مارو گسترش بده. میتونیم به اولیت های دیگرمون برسیم. application by example
+یادگیری کاربردی از بالا به پایین شروع میشه:‌برنامهنویس
+یادگیری مفهومی و محض برعکس: ریاضیات
+We only regret what we never try
+There is no evil in details, Experts are always in details
+You have hero if you live in low quality less broad close mind.but you are hero if you pursuit your goal and gett better every daymilestone.
+
+Toxic manager is only wall between u And happiness.
+
+Its not yor job sucks , its your manager sucks.
+it's ppl judment that annoys them not the event
+expertise is product of deliberate practice
+start small/continue daily as habit
+human believe what it is easier to believe.(try harder with your brain)
+ppl dont progress because they try hard, but because hardness is their routin and checkpoint.
+Have u felt like a song but bcz nobdy linstened that, u felt alone.
+you never find someone who chose lazyness and reached to higher level.
+
+If youbare happy for yourself, u dnt need any body to effect u.
+
+ppl dont' understand other's code; they barely remember their usage of code/
+uml arrow: you won't learn until you create KT
+لامزم نیست ادم کاملی باشی تا کار رو خوب انجام بدی
+ادم خوبی(منطقی تست پذیرو ایندهنگر) باش تا کار و کامل انجام بدی
+** setup routin: your body will adapt
+** we are more focused and productive with limited time
+
+
+
+
+
+
+</pre>
