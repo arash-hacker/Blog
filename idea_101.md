@@ -173,7 +173,18 @@ prismatic/hexagonal file write and reader multiple times
 Mental gym        
 every rural project matters / even small        
 
+<pre>
+ movie: always suxes wo drama
+developer republic
+moving/ reference / borrowing/ lifetime
+Justic promotion checker
+Why is more important than how!!
+Local tracker and insulter dr clock
+: use one db as source of truth: inst of slack, jira, doc, code
 
-
+everything is communication: OOP, DDD, familty, ...
+هر خاطره که یادآوری میکنیم ٬ همراه با صدای درون خود ماست
+eyeglass as activvity watch
+</pre>
 
 
