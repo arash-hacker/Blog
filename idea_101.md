@@ -1,4 +1,4 @@
-tetis.              
+<pre>tetis.              
 bloxx.              
 park machines.              
 treee reduce.              
@@ -82,7 +82,9 @@ space\tab programming language.
 san Tzu quotes.              
 color multipication.              
 SO with real monry.              
+</pre>
 
+<pre>
 change vs code bg tag sepreatly
  cooking w/ AI recommend
 3 new toys like Rubic
@@ -119,9 +121,9 @@ hold turbin, turn world in circl.
 matching game with 3 items in sequence.          
 rotating chess board game like rubik with rope   
 What if bullet shots are not from familar gun?u can kill nay one.    
+</pre>
 
-
-
+<pre>
 qtrix 4d          
 w/ exp can check new exp is old or no          
 w/ little waste can check it's waste or na          
@@ -138,8 +140,8 @@ If guy has no one to file: like homeless.
 Unhappy socrat can fine way to satisfy. But happy idiot, shortly will be tired.          
 How implement virtualization in society.          
 Movie: child under five has genetic for rejuvinating adults. Keep them. Kill them. Export them. Is that moral?          
-           
-          
+</pre>          
+ <pre>         
 open problem for any one to solve ???          
 everything is skill based: we don't have pre-determinated NN in our brain.              
 anchor mind in another topic               
@@ -172,7 +174,7 @@ senior eagle-eye software engineer
 prismatic/hexagonal file write and reader multiple times        
 Mental gym        
 every rural project matters / even small        
-
+</pre>
 <pre>
  movie: always suxes wo drama
 developer republic
