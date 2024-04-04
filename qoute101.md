@@ -295,15 +295,7 @@ Women detox men department
 Animated statue
 Pwn with pitty for onlooker
 Only 3 percent do calculation.
-Order someone to bring something
- 
- 
- 
- 
- 
- 
- 
- 
+Order someone to bring something 
 </pre> 
 <pre>
 is it legal to connect superbrain to yourself?     
@@ -570,9 +562,51 @@ uml arrow: you won't learn until you create KT
 ** setup routin: your body will adapt
 ** we are more focused and productive with limited time
 
+</pre>
+<pre>
+if you don't set any limit, you can go many far aaway
+They stucked in interview and exam, instead of selection based passion and previous build.
+These interview ju st suvks for random algorithm thet didnt use
+The algorithm they didnt like.
+if you are creating you are master/ if you are user you are student
+dnt teach me / let me experiment
 
+Dont be judgy in middle of task
+ Feel like game. Enjoy and spend.addict and workaholic.
+سفرکردن یا سفرنامه خواندن؟
+کد زدن یا کتاب خواندن؟
+read alot; write once; write alot read once;=> analyze alot
+fuck books; thy r useless; prototype; prototype; prototype;
+when you know more; you earn more;
+you go wave by wave to solve problem. this should be in general by keeping design in mind and refactor before code
 
+Instead of playogn chess anf enjoy the game, they forced ranking ayatem metric and that is annoing.
+Ptogress only comes when you enjoy it not suffer it: gym. Chess
+Dont satisfy anyone but urself. Polycontext tourist
+with rythm you can remmeber word by word. otherwise it's just random bullshit
+A word remember you:
+- event
+- sound
+- related word
+• oppsite word
+• synonym word
+• same voice
+• similar voice
+- context and related graph
+- picture
+- feeling
+Di u know why first place alwqys win,because they dont competet and compare with others, only their yesterday perfotmance
+And thats reason firsts always will place first with much distance to rest
+chera koko nakharam, vaghti hamasi
+witch, wizard, sorcerry software engineer
+don't think simple, grant problem to simple aspect for simplicity of others not YOU
+a shape without line or without straing by dot. 
+be fellow and distinguish eng , change world via oss. not conf, book, meetingm ,,,
+earthquake company house builder cant be trusted if their own office is un restabtl to earthquack. convey law
+it's not trial/error that fail ppl, it's irreversible decision you made: cigar/crack
 
-
-
+self reflection and assess daily: change what you are doing to change what you are going!!!
+get planned/ prioritize
+رقابت ما از لیاقت ماست
+no flow(zone)/ no grow
 </pre>
