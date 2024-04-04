@@ -188,5 +188,34 @@ everything is communication: OOP, DDD, familty, ...
 هر خاطره که یادآوری میکنیم ٬ همراه با صدای درون خود ماست
 eyeglass as activvity watch
 </pre>
+<pre>
+ ایا مفاهیمی که استفاده میشود سادهترین هستند؟ 
+Mov: upgrade wife on promotion like work
+Handle request like heartpump, scale of cpu auto
+My mindmap of scares and nightmare
+- two rubbers
+- wall of human face
+- mokhaberat
+- woman paint on rug
+- mini turbo machine
+- shadow stranger
+- monkey ufo
+- doronge koochak
+- pasht hayat nane. Taji wo eye.
+- inside sky father singing on one comet
+- water pump whivh pours fire ins water by mehd
+.
+movie: elevator CEOs ride customers and how they be managed by other workers elevator
+Movie: live on above nightmare
+Age of human nased on growth of war and perriod.progress started after plll made human 70.
+
+promote linkedin hiddener
+any temp problem has temp solution, only permanent probelm has no solution.
+dont make perm problem always stick to flexible problem. e.x dead-lock;checkmate
+distributed community make you grow, if you are alone you are circling over yourself.
+movie: alien tries to understand humans by signed message sent from humans. they see futre, past, they don't have dot or line 
+table: contains all ppl data; aga; passion; happy , cripple...
+5why dilemma : ask 5 what or inf what to find root cause. why give you only one assumption not fact.
 
 
+</pre>
