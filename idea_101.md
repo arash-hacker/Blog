@@ -219,3 +219,49 @@ table: contains all ppl data; aga; passion; happy , cripple...
 
 
 </pre>
+
+<pre>
+
+ Real eng vs ai engineering meme
+2k word in cache memeory with many context. Each ctx gas meme  and cache
+a company which gaurantee job for you and you need to learn their SDL
+mocking ceo in organization
+game: mirror copy projection inside and create new place; should move objectys
+ghithub for recruiting
+
+
+3d qr codes
+*HOW DEFINE FUNCTION NAMES
+WHAT TOPIC OF COMP I LIKE: 
+=> Core(k8s, top trends...) + Side(RFC) - [Plang, Compiler]
+
+*WHEN TO USE WHICH ARCHTECT (MVC,..)
+
+Bird view of all companies view till file in classes. and ADR plus relations.
+
+The overall idea behind comments is to capture information that
+was in the mind of the designer but couldn’t be represented in the code. how write an PL to repre designer aim
+interaction in code reminder:video
+good var names by gpt. 
+talking mathematic ins english in daily
+one part of miss communication is language itself(e.g many context and var naming)
+everything is being grown, takes hardness(takes energy into NN, KT to create new nodes) like muscles, brain, tooth
+game: solve by atome movement patterns
+hayede:
+- yeganeh : rahesho midonesti
+- fridoon : salam
+- ta key z tamanie
+idea: book for every product with updated notife on each side: which is comment for each part related to you.
+10% design better or 10% move faster? 
+HOW DESIGN a GOOD ARCH at begining w/ capacity of every change and update packages.
+  
+idea: curse of begineers luck :).
+progeam language: commetns which run code. code is doc and logic. comme t as lang
+new type of pgramming lang: comment language.(it's testable/ bdd/ tdd/ ddd and functional and structural)
+functinoal/strcuturlal/
+
+Types of project management: ....
+mvc(1-*), mvvm(*-1), mvp(1-1)
+small thinking or question can accumulate into your uncounsion(which make stresss more and more )
+movie: architect mvc to eda.
+</pre>
