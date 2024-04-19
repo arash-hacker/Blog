@@ -610,3 +610,67 @@ get planned/ prioritize
 رقابت ما از لیاقت ماست
 no flow(zone)/ no grow
 </pre>
+
+<pre>
+ روابظ ها برای نگه داشتن فاصلس نه برای نزدیک شدن
+dont break down problem into smaller peices.
+effect of wrong self learning by attaching living prove to idea or problem
+the belief or fact that doesn't change way of thinking is useless
+unlearn bad habbit faster make you success
+you cannot fake it by practiciing. you can make it by doing it
+dont hire tactical tornado: solving problem fast as possible. focus on stratigic programming. solving problem in advance.
+two key success for tech developer : focus and communication
+functional programming can use any:all:none to detect exepction and handle nulled oblject
+if in junior level don't fix you solution-providing, more design and tradeoffs, you will promote and promote until harder prolem comes. you either should consider +10 different options(which comes from previous junior level) or start again from scratch. but can be practed alas that is too late.
+you always remember options (system 1) from previous experience.underperform their true potential (it also makes them frustrating to work with).
+each software is collection of activitis which drive mvc, monolo, micro-ser,,,
+you must enjoy "the thinking", not process of how to do tasks.
+---
+man/woman request type with storage like cpu & capacitor.
+type of connectino: there is always connection from requester. there is either server to db, server to reqeuster, or both.
+everytnign is storing like enery to energy : first law and conductor law فانون تبدیل انرژی
+all is req/response model with types of connection
+*- give me response  (now| tommorrow | soon as possible when ready)
+• - will send you sequence of data to process and return stream
+---
+the principal who cannot provide many options to trade-off(from many layers and heirarcy) is still junior.!!
+
+"First do it, then do it right, then do it better." is evil. First design it, then design it right, then design it better. then build it. otherwise its just trial/error.
+
+Who cant understand one level veneath can go deeper.
+
+A problem maker may solve problem but not vice
+Problem solver cant make problem
+In debugging you should know how make bug, without it ypu dont have guess.
+hame chiz az do taraf baste mishe; biron daron. pas has moshkel has two sol.inside/outside.
+
+fater use less energy, less memory?
+intuitive: instictive, innate, pereceptive, recept, inherent, introspect, spontaneuos, impulsive,
+best companies hire both
+-  top-down(int                   fast(less timetaking), flexiable = opnmnd,      holistc(expgenr-bfs)) tactical . new way as you go. low risk action
+- down-top(non-intuitive,  slow(more timetaking),   rigid = conservative,  pointic(. expertizm(dfs)) logical/analytical/reasoning) strategic. predefine way we went. high risk == high penalty on resource(time, eneryg,  money,...)
+- NN vs Chart/steps
+(fast is nt flexible but flexiable is fast) just like curve=/=line
+problem is solved by exp/imitate/reasanoing
+reasaning w exp is applicatn
+reasanong wo exp is pure
+exp w reasoning learning
+exp wo reason imitate
+secure and coward by resouce (money) vs money for learning
+new word: (flexible analyical) big halow sphere vs brush bullet.
+too much flexiblae → careless and playing
+too much rigid → not funny and carefull
+mechanical clown and trickester/joker and elf machine ayuhasca
+like sw interview logical: I need find FR NFR see what system need, critical think and provide systematic approach=/=(intuitive): I had some in my past ex. lets do by some example like this/that.
+fixing idea is good;fixing; re-using your brain more; (find where you mistaked)
+
+- Side (Sega;Grep; ...RFC):30%
+- Kube(Go);Deno(Rust);Other Maang FOSS :70%.    
+- cntrb oss hire not side projects
+
+Water 5
+Meditation/Youga 467 *5
+Gym 60
+Sleep 10 
+Pomodor
+</pre>
