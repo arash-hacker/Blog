@@ -1,3 +1,4 @@
+<pre>
  Exceptional problem-solving abilities
  Quick learning capability
  Extensive vocabulary
@@ -58,3 +59,4 @@
  Ability to understand complex instructions
  Enjoyment in solving problems
  High level of self-motivation
+</pre>
