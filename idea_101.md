@@ -265,3 +265,17 @@ mvc(1-*), mvvm(*-1), mvp(1-1)
 small thinking or question can accumulate into your uncounsion(which make stresss more and more )
 movie: architect mvc to eda.
 </pre>
+<pre>
+Speaking lang o ly with pic.
+Program to draw images with hand as movie
+visual memory technic: use 4x4 as image to code
+movie: monk in fog with affect from fogs for reaching way.
+movie: wake up in illustion to reality. effects-alignment-knowledge gap
+Arash raibow lcsubstring algorithm.
+Chat gpt: gpt memory
+Tauism
+Why death is not bauety? Make death buty.
+World as tdd. Define list of deadly acts : eat lead...
+Sma altman, frier. Gallom. Fo4. 
+Design new DDD
+</pre>
