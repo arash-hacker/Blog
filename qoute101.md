@@ -674,3 +674,67 @@ Gym 60
 Sleep 10 
 Pomodor
 </pre>
+
+
+<pre>
+ Every eq has two params: every problem has atleast two solution..
+Diagram to show when yiu editing code rlated 
+Fraction mass force # speed of work
+thinking=focus
+How to speak new way, that makes you analyric speaker like zen, mindfullnes
+
+when thinking with distraction, your NN will train with distraction and branch out unnecessary.
+ppl favor themself not other. so they write test for themself not you.
+exp has always extra points
+
+ The practice 
+is simple recognition of the in-breath and the out-breath not forcing them.
+
+**** lack of Ctx.sec.perf., communicatino, code coverage,  knowledge, xp. strategic thinking, systamatc, critical.tactical,analytic, practical, creative. makes pricipals fail.**** They need clean(standard. Style.fitness.decispline.mathematical).correct(trade off) solution 
+
+Get bored from repetetive job make S and N mbti.
+you are worry bcz u dn cal probablities for your output and inputs.
+pareto: every problem should be twice solved => 80→ 96
+پسر عمو ها راست میگفتن و اسلحه ها 
+pareto law formula: Identify the point where the first 20% of items contribute to 80% of the total value or impact.
+expereience(new K maker) it and analyze(cache) it to KT: exp → (imitate, analyric→ exp)
+20% of feature x make 80% bug x
+100% MR => ok 90% error 10% → 8% total error is for 20% MR
+                                                      → 2% total error is for 80% MR
+احتمال دوم شدن چقدر است 
+احتمال سوم شدن 
+احتمال -منقی۱ شدن جقدر است
+in statistic we don't cosider prob of -1 or 0.00 in our calculation. they may happen but not in real world.
+
+20% exercise make 80% new muscles.
+the song you like is aggreate of songs you heard at embryo or child.
+ما اشتباه میکنیم چون احتمال وقوع را بر اساس تجربه لیست مکنیم نه باراساس حقیقی. فلسفی
+
+every probelm comes from miscalculation( miscommunication(not all covered fact boundry)(miss information- flaw data, less info, bad info), probablity(PlanD)(height of fact boundry) as accident(Null checking, bad signal),...)  → 3d surface plot pic→ Not adventuring context.
+
+
+
+Some people, when confronted with a problem, think "I know, I'll use AI." Now they have two problems.
+
+Standard → Style → Fitness(ratio) → Math ratio
+cats think their owner sleeps when they work.
+I so dumb in normal mode:
+Data is messiaha
+astronomic is highness
+اگه الان خوب نباشی فردا افسوس میخوری
+you use draft and uncleaned solution and tried to exapnd it instead of use clean from scratch.
+
+no one give prize for your speed but you may impress them. so try solve problem in your casual time or deliberate time.
+experience bring speed not hype. hype give you accel not speed.
+You cant learn by reading. You can lrarn bybask question even in rrading or writing or listening.
+
+Life is not fair, so why playing fair ti it when you can cheat and lie.???
+best friends do lies for you; idiots do crimes for you;enemy won't do anything in your favor intentionaly
+U lived happily withput concern, and just fovused on w u care(math, robot,..) until you dealt with low std ppl. Their decr ur std, now u care about wt otr ppl told abt u(and childish manners politic).
+
+Staff eng care. They read about code. They have side projects. They improve their skills because doing so is fun.
+
+Enlightment is finding new ctx
+
+never go meeting without prepreation : focus and openness
+</pre>p
