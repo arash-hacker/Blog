@@ -279,3 +279,11 @@ World as tdd. Define list of deadly acts : eat lead...
 Sma altman, frier. Gallom. Fo4. 
 Design new DDD
 </pre>
+<pre>
+ What is wrong about hak? Poor quality.hardcoded. extendablity. Not general porpose. Bugs...
+
+Diy code types:4 categ
+All solution are hack: more accepted is rule of thumb.
+Game: lcd simulator and rrplace object 
+movie: me and my good friend : baph
+</pre>
