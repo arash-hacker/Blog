@@ -1,4 +1,4 @@
-![comment](https://github.com/arash-hacker/Blog/blob/master/img/comment.jpeg?raw=true)
+![comment](https://github.com/arash-hacker/Blog/blob/master/img/comment.png?raw=true)
 
 <pre>
 feat: add or remove feature
