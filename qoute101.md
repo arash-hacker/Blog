@@ -737,4 +737,8 @@ Staff eng care. They read about code. They have side projects. They improve thei
 Enlightment is finding new ctx
 
 never go meeting without prepreation : focus and openness
-</pre>p
+</pre>
+
+<pre>
+ how you write: how you mind : how mind work
+</pre>
