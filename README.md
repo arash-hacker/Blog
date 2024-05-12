@@ -12,3 +12,6 @@
 [hype_doc.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/hype_doc.md).  
 [EM.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/EM.md).  
 [100_problem_solving.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/100_problem_solving.md).  
+[comment-convention.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/comment-convention.md).  
+[commit-convention.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/commit-convention.md).  
+ 
