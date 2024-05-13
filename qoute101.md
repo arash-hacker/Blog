@@ -741,4 +741,17 @@ never go meeting without prepreation : focus and openness
 
 <pre>
  how you write: how you mind : how mind work
+ Spend time to think and discover different approaches and existing solutions before you start coding. 
+
+The North Star is to write 0 lines of code per task. It will never happen but will help to avoid verbosity and the built-everything syndrome.
+
+Consider build-vs-buy. Focus on building business logic instead of commoditized functionality.
+
+Learn well what the cloud providers offer; it can save 80% of the coding.
+
+Go for quality but no over-engineering.
+
+Feature development shall always be decoupled from refactoring.
+
+Be vocal when you have concerns, share them with your stakeholders. 
 </pre>
