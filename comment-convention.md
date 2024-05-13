@@ -1,4 +1,4 @@
-![comment](https://github.com/arash-hacker/Blog/blob/master/img/comment.png?raw=true)
+<img src="https://github.com/arash-hacker/Blog/blob/master/img/comment.png?raw=true"/>
 
 <pre>
 Praise
