@@ -1,4 +1,4 @@
-![comment](https://github.com/arash-hacker/Blog/blob/master/img/commit.jpeg?raw=true)
+<img src="https://github.com/arash-hacker/Blog/blob/master/img/commit.jpeg?raw=true"/>
 <pre>
 feat: add or remove feature
 feat(shopping card): 
