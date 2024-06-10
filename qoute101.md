@@ -755,3 +755,131 @@ Feature development shall always be decoupled from refactoring.
 
 Be vocal when you have concerns, share them with your stakeholders. 
 </pre>
+
+<pre>
+ What we see alot is not what we really learnt.(holistic one step depth search)
+What we really recall/thinkg/redraw is what we learned.(detailed many step depth/breadth)
+اپن مایند بودن به  خود و طبیعت و دیگران پیشرفت میاورد.
+every second counts
+mindfullness about environemnt.
+instead of blaming, think about error/bug and how to resolve it.(what is/how to fix)
+ppl whom blamed ugly try to make up too much.
+ppl whom blamed idiot try to prove too much.
+We like only core memory and extended happy time songs
+Poor and peasan vs rich and royal
+Ppl who easy on self get addicted: drugs e.g
+Ppl who hard on self get upgraded.
+Only hardeningn and consistency will make ypu upgrade not smoothness: like blacksmith
+We only need speed, optimize and consistency(repetetive) -> fast productive -> cpu vs gpu
+More repeat and beiing open with little uplimit make it strong. -> more connection, more thick!
+
+
+*** In every rel: openness, benefits. Respect. Forgive. Responsibility. Mature. Commitment ***
+
+
+*** In every rel: Openness for feedback, Benefits for progress. ***
+benefit: responsibility, commitment, forgivness, mature, respect, money , spirtual, emotional.trust.
+
+
+Forgiveness: every body make mistake but same level expect less.
+
+Openness makes progress and motivation. No bpdy likes onhold.
+
+Benefits make you forgive: nobody like cheaters
+
+Mature means calculated(benefit): some time no need to fight or struggle to keep it up.
+
+Respect can be sacrificed: when brings more benefits than damage.
+
+responibil: mother of 5 work house cs hsbnd work hard.
+
+Diff child and adult: acceptance of reality.
+
+Focus is limited
+Breaking intervally 
+Mindfullness and meditation
+focus and consistency is key
+
+
+
+....
+هوای نفس کنترل شع، نیرو های جدید میاد
+هر چه مازوخیستر، و طلب ازار بیشتر .از خودت بدت بیاد
+سیگار. مشروب.قهوه.دماغ.حواسپرتی(تمرکز).زکس. راختی.احساسات سطحیو عمقی. آب
+عادت نکردن به عادتها
+حیله گریر تمام مراحل پیچیده.: چطور در‌روزانه استفاده کنبم
+اگر‌حیله روزانه استفاده کنی /صلح و جنگ/ میتوانی مسلح باشی
+
+سخترین کار٬ ادامه کار اسان است .
+
+حقه و نیرنگ و زرنگ باهوشو زیرک 
+diff principal and junior: prn can control his force, laziness and OCD in best way, while junior try to finish in all costs. by pass standard and do what he likes.
+you maybe prince but with less experiences.
+
+life is meditation, if you focus enought
+they stole mindfullness from us and replace it with shit.
+هر چیزی انرژی دارد و منابع محدودن
+زمان انرژی مکان ادمها همه محدودن
+
+بعضی چیزها را نباید لذت برد:‌چون اسپیل میشوند. مثلی دوستی به رابطه : گل در طبیعت و خانه:‌حیوانات ...
+نظر بنیادی چیست؟ این بقیه رو میسازه
+ساده و بیخیال 
+حقه باز و زیرک
+don't make decision before lunch .
+
+cunning level: #ctx * #deep level
+meditate: no emotion at all.
+
+کمین‌کننده: در مواجهه با موقعیت‌های ناشناخته و پیچیده، جنگجو باید صبر کند، محیط را به دقت بررسی کند و بدون شتابزده عمل کند.
+شکارچی: در مواقعی که هدف مشخصی دارد، جنگجو باید با تمرکز و استقامت به دنبال هدف برود و از هیچ مانعی نترسد.
+
+کمین‌کننده با صبر، دقت و خودکنترلی عمل می‌کند، در حالی که شکارچی با تمرکز، برنامه‌ریزی و استقامت به دنبال هدف خود می‌رود
+
+--
+بیرحمی به احساسات و ترس
+حیله گری در داشتن استراتژی:‌کیص. داشتن هوش و دقت در رفتار و تصمیم‌گیری 
+صبوری در تمرکز و کنترل احساسات و تحمل سختی ها و مشکلات و منتظر برای زمان مناسب اقدام 
+ در مشکلات و موانع استقامت کند
+ملایمت در خود و دیگران . تعادل بین قدرت و ملایمت
+--
+1. بیرحمی (Ruthlessness)
+بیرحمی در نگاه دون خوان به معنای توانایی دست یافتن به اهداف بدون احساسات شخصی و بدون ترس از عواقب است. این مفهوم به معنای قساوت یا بی‌رحمی نیست، بلکه به معنای پشتکار و پیگیری اهداف بدون تاثیرپذیری از احساسات و ترس‌هاست. یک جنگجو باید بتواند تصمیمات سخت بگیرد و در راه رسیدن به هدفش از هیچ تلاشی فروگذار نکند.
+
+2. حیله‌گری (Cunning)
+حیله‌گری در فلسفه دون خوان به معنای داشتن هوش و دقت در رفتار و تصمیم‌گیری است. یک جنگجو باید بتواند موقعیت‌ها را به درستی تحلیل کند و از ابزارهای مختلف برای رسیدن به اهدافش استفاده کند. این مفهوم به معنای فریب‌کاری یا دغل‌بازی نیست، بلکه به معنای خردمندانه عمل کردن و داشتن استراتژی مناسب است.
+
+3. صبوری (Patience)
+صبوری یکی از ویژگی‌های اصلی یک جنگجو در فلسفه دون خوان است. صبوری به معنای توانایی تحمل سختی‌ها و مشکلات و انتظار برای زمان مناسب جهت اقدام است. یک جنگجو باید بتواند در برابر مشکلات و موانع استقامت کند و با شکیبایی به دنبال فرصت‌های مناسب برای پیشرفت باشد. صبوری به معنای توانایی کنترل احساسات و تمرکز بر هدف نهایی است.
+
+4. ملایمت (Gentleness)
+ملایمت در نگاه دون خوان به معنای داشتن رویکردی ملایم و مهربانانه نسبت به خود و دیگران است. این مفهوم به معنای ضعف یا نرمی نیست، بلکه به معنای داشتن تعادل بین قاطعیت و مهربانی است. یک جنگجو باید بتواند در عین قاطعیت و پیگیری اهدافش، با دیگران با احترام و مهربانی رفتار کند و تعادل بین قدرت و ملایمت را حفظ کند.
+
+محترم استراتژیست بی احساس و صبور.
+برای استراتژی صحبت:‌چه میخواهد از موضوع 
+ایا همه چیز‌در طلب پیشرفت است؟ در‌حا  زدن چطور؟ پسرفت چطور؟
+ایا هدف  انسان کامل‌شدن است ؟
+جواب: ما در دنیایی زن گی میکنیم که منالع محدود داریم، منابع شامل مکان زمان نیرو و...:
+ و پاک صورت مسیله
+دووم اوردن. استقامت
+مبارزه
+لذت بردن
+جاخالی، بی خیالی 
+پیشرفت ثمره تحمل سختیست . گاهی دلپزیر گلهی غذاباور
+هیچ چیزی ثابت نمیماند:‌بدن و ذهن و روج . برای همین هر روز تمرین میکنیم تا ثابت نگه داریم یا ارتقا دهیم.پس هدف ارتقا است نه دوون گرید . رشد و تعالی برای خلاق بودن و ساختن است. وگرنه راههای تکراری رو همه بلدن پیاده کنن حتی کامپیوتر. 
+
+مسایل با گذر زمان پیشرفته تر میشوند و نیاز به آمادگی در سطح دارد.
+اگر تا حالا آماده نشده باشد. زندگی سختر میشود
+
+
+سخت کار یا هوشمندانه؟‌ both
+احمق همیشه اسونو انتخاب میکنه و امیدواره آسون انتخاب درست باشه
+باهوش همیشه شرایط رو میچینه و سخت ها رو هم در معادله در نظر میگیره.
+
+--
+stamina-strengh-speed only one level upper => ranking
+you only need larger, faster,long-term cpu to succeed!!
+
+open mindness is not accepting other idea or give credit. 
+it's accepting as tradeoff , without emotion or sense involved.
+
+</pre>
