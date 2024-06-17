@@ -878,8 +878,77 @@ meditate: no emotion at all.
 --
 stamina-strengh-speed only one level upper => ranking
 you only need larger, faster,long-term cpu to succeed!!
+ 
 
 open mindness is not accepting other idea or give credit. 
 it's accepting as tradeoff , without emotion or sense involved.
 
+</pre>
+<pre>
+ هیچ سختی و آسانی در کار وجود ندارد. هدف غایی تقلید و شبیه بودن به نتیجه نهایی است .
+تقلید / تفکر / تجربه
+مثل بسکتبال که تلاش میکنه توپ بیشتری رو گل کنه 
+CHAMPIONS BEHAVE LIKE CHAMPIONS BEFORE THEY ARE CHAMPIONS
+fuck theo
+focus is tunnel, not spot
+Maybe curse are come from future, what you will do
+
+success consistent and sequential.(3 try e.g) . 
+there is no first time success, if is, is not performant
+you don't learn language. you will expose your experience to language to be more in touvh .
+
+want to learn langugage: speak to it MF.going from abstract to percise is what human learn.
+
+
+sam altman : fury
+mccaffi bojack
+
+سرمایه گذاری و سرعت پیشرفت
+اخلاق (مهربانی فداکاری ازخودگذشتگی بخشندگی آرامش اعتماد به نفس تواضع عدالت وفاداری مسیولیت صداقت احترام سنگینی و متانت خوش برخورد پاکدامنی خوشاخلاقی صبور شجاع)سخت کوش. mindset
+زیبایی قد سلامت
+هوش استعداد اپن مایند منطقی و احساسات
+
+
+۱ درصد سختی بالاتر
+هدف زندگی پیشرفت کردن است و لذت حاصل از آن (که از راه لذت سختی میاد) , ممکنه چیت بزنی و انتظاررات رو بیاری پایین که از نتایج پایینتر لذت ببری.
+
+youcan learn only when are in zone flow 
+مهربانی.ارامش 11111111
+فداکاری از خودگذ‌ بخشند. فرصت یکسان پیشرفت .رضایت444
+اعتمادنفس. حق گیری3333333
+اعتماد. مسیولیت بعدی. اعتبار 2222222
+تواضع.غیر تنفر‌جمعی.غیر حسادت 66666
+ عدالت. حق یکسان 333333
+ وفاداری. اعتبار22222222
+ مسیولیت. توانایی انجام کار بززگتر22222222
+صداقت. اعتبار . ترس از محاکمه222222222
+ احترام . احترام‌ مقابل11111111
+سنگینی و متانت.  جدیت بلوغ222222
+پاکدامنی.غیرت .مالکیت222222
+خوشاخلاقی. ارامش موجود1111111
+ صبور.پاداش بیشتر.امید5555555
+حقارت.بزرگ منشی.استاندارد.وفادار به اصول.222222
+ترحم. حس بهتر44444.
+خشم.ارامش1111111
+حسادت‌.تنفر.اعتماد ارامش رضایت.بزرگ منشب666666
+شهوت.پاک دامنی.22222222
+تنبلی.پرتلاش......
+حریص. قناعا.صبور55555
+طمع.صبوذی555555
+غرور.اخم.666666
+شکم پرستی......
+مسخره.احترام11111
+شوخی.خوشی.444444
+مخفی کاری. علنی بودن و ساده.888888
+استفاده به عنوان مهره
+......
+1.ارامش
+2.اعتبار
+3.عدالت
+4.حس خوش
+5.صبوری
+6.تواضع
+7.سخت کوشی
+8.سیاست و پیش بینی
+......
 </pre>
