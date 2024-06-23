@@ -307,3 +307,22 @@ Confidet meams con fiar. With trust
 Gramapgone.. grab ma fon
 Multi religon.. partial hourly religeon
 </pre>
+<pre>
+ 
+Left btain train to be Right.
+Is left rechargingg
+
+چه چیزی رابطع دار تفسیر‌میشوند؟ مثل پرس یه دکمه و جای دیگر دنیا اتفاق دیگه افتادن
+به ما یاد داذن در روز زندگی کنیم به جای اینکه در ثانی ها زن گی کنیم
+چرا بدی میکنیم
+
+Movie: profet descrubing death
+How to favor it 
+And even observer trick
+سنتی راک نواز
+پیوند معنوی و حس اتصال و درک طرف .درد ترس ...
+
+همه چیز در حال پسرفت پیشرفت است.
+درجهاتی که لنرژی و منابع محدودا
+
+</pre>
