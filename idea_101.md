@@ -287,3 +287,23 @@ All solution are hack: more accepted is rule of thumb.
 Game: lcd simulator and rrplace object 
 movie: me and my good friend : baph
 </pre>
+<pre>
+ 
+Movie: crocodil pet eaters eater :)
+
+Its good to think at least two plans.
+ادم وقتی انتظار داره، سریع عمل میکنه
+پس هنه چیز پیش بینی مینم
+Its dopamine that is addictive, insert to hard task and enjoy. Easy one have that already.
+dopamin in hard work is not masuchism, means passion.
+Dopamin: completing task and reward for staisfaction.
+Gym: multiple award tasks.
+همه ی عناوبن بی معنیاند. فقط دو صه تا اصل هستند بقیه سطحی
+
+
+اموبلانس ینی تراولر. پس اول این گشت بود
+Confidet meams con fiar. With trust
+کد نوشتن. روانشناسی هم میخاد
+Gramapgone.. grab ma fon
+Multi religon.. partial hourly religeon
+</pre>
