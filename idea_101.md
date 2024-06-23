@@ -326,3 +326,20 @@ And even observer trick
 درجهاتی که لنرژی و منابع محدودا
 
 </pre>
+<pre>
+Helen keler. Abortion forbid
+---- 
+
+.....
+You needed biased.liked side bcs u like that. To be . To finish faster. To rest.
+Helen keler. Abortion forbid
+U can change core memory.... Abarm genoo kalam gir.
+
+
+Modern country to save
+---- 
+you need motivation to go each time.
+Even archtect has thrread for bricks
+......
+ 
+</pre>
