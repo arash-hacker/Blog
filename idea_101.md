@@ -343,3 +343,56 @@ Even archtect has thrread for bricks
 ......
  
 </pre>
+<pre>
+Vscode: 
+* find by category list, 
+* exclude folder name, 
+* change tab color 
+* psychedelic theme
+
+gallery w shit painting and dring cocoa
+I was luciding in my childhood.
+Stv job book to otber
+instead of reading words and rememeber ; better is to speak and use them from memory. what is usage of a word when you don't use it in your life. (performance)
+new animation styls: real face in body of cartoonish persona
+movie: anybody who take importantt himself will explode 
+movie: line movie like |   |
+                                       || ||
+                                         |
+QiQ test: providing more evidence to your proof. must be legit but not fictio.
+save/restore word remebering theory.
+
+focus is like thread or root: bigger longer less branch is better
+and it can contain SPOT of focuses to remember/
+speak diff lang every day:❗️❗️❗️/ repeat listenining.
+break task to multiple hours: 25;5 rule is always winner ; longer , consistent, hard work
+
+---
+Time Management.
+Continuously seeking new knowledge and skills.
+Financial Literacy:such as retirement.
+Collaboration and Teamwork: 
+* Resolving conflicts and contributing, Communicating and sharing ideas 
+Adaptability and Flexibility:
+* Adjusting to new conditions and environments quickly.
+* Being open to new ideas and approaches.
+* Managing uncertainty and change positively.
+Critical Thinking and Problem Solving:
+* Analyzing information objectively and making reasoned judgments.
+* Identifying problems and developing effective solutions.
+* Making decisions based on evidence and logical reasoning.
+---
+movie: shape shifitng splashy cartoon
+تاثیرات ناخوداگاه تلویزیون بر بچه های دهه: حس ترحم برای یالم
+دهه ده
+if you aim for 10% higher, you are always growing. then
+when bodybuilding go 10% higher
+when reading, go 10 page higher or read faster
+when you reached to 10 perc. go more now. (adapt . conquer)
+your task should have limit to exeed that limit for progress.
+you live in software, convery law: this world is assempled by humans therefore any problem comes to relations.
+you have time to read as many as you want. but don't have time to read all of them.
+
+
+ 
+</pre>
