@@ -721,4 +721,70 @@ smartness is judged by one act but consistent history otherwise is lucky.
 تمرین عملی . و اسمارت. تایم منیج عحول و خیالباف و صبر و تحمل بررسی همه جوابا با تست.نظو و
  خوش خیال احساسی یودن. تمرکز و سکوت و مدوامت. بی خیال و عقب انداز. وقت نشناس. عدم تست. احساسی و بایاس تصمیم گرفتن.
 </pre>
+<pre>
+ 
+۱.۱.۲۰۰۹  
+5y: unity. udk.3d max. maya. gaming. flash. photoshop. adobe after effect. illustrator. in design. website with jq. php. lamp. linux commands. flash programming. aps.net.C# project. linq.html.css.js.mobile development.magic.mihandownload. vatandownload.
+۱.۱.۲۰۱۴ .
+2y: pyton, RPI . robotic. c++/c kiwi rpi. 3rd printer. gitlab. opencv. android. java. vim. code review.  kali . hack . router. source codes.
+۱.۱.۲۰۱۶ agy
+1.5y  C# learn. mysql. management.politic. Husler movie.accountrant. , magic ...s
+۱.۶.۲۰۱۷ س.
+6m. nodejs. jquery. backend flask. html.css.js
+۱.۱.۲۰۱۸ ت.پ.0000000000000
+5m   nodejs/ react/ native. clean. trick and tip. 
+python. dask . tensor. numpy.unity3d
+alexa. gaming..
+۱.۶.۲۰۱۸ ژ.
+6m backend.clean code. modular. architect. node internal. js. process. thread.   mongo . db . orm . refactoring guru. system design . design system.anti patterns.
+۱.۱.۲۰۱۹ مم
+8m . good coder. analytic. OCD for test. modluar FE. BE. delivery Wordpress. network. Devops. ICMP. react library. rendering for admin. vscode lib. react. google code jam.minecraft. pdf. awesome-xxxml.deno
+۱.۹.۲۰۱۹ prince allee.
+3m . book . shells. c / c#. / c++ / python./ keras/ AI. ML/ DS/ 
+۱.۱.۲۰۲۰ اm
+1.5 : linux, internal, socket, bash, event loop. typescript. java. python management. django. devops. linux table, core, v8,.golang . rust.english.toefel.ielts.
+۱.۴.۲۰۲۱ 
+مقالات جی اس. کوبرنتزو گیتلب‌. شصس. نتورک. رمزارز. بلاک چین. راست. گو لنگ. Gcp. Arch. Arch fundam. Kubei.
+interview.io dimakoroloc.مصاحبه ها امادگی برای پرینس.اسپانیا. المانی. ترکی. شبیهساز نینتدنو. اپن جی‌ال پایتون
+انگلیسی ۲۲۴۰۰ کلمه.
+کناب انگلیسی. نظریه بورس.ترکی.اسپانیایی.ایتالیا.المانی. اقتصاد.هنر. معماری. سیاست.شصس.لزح.مارکت. بورس.
+----
+** بازی هلی لستراتژژیک کردن الکی 
+** ول کردن کار اصلی و چسبیدن بهدسرگرمی 
+** عدم برنامه ریزی
+** تاخیییر انداختن همه چیییییی
+** چه اشتیاهاتب پیش میاد.
+** سیستماتیک سینکینگ
+** دست تو 
+** دعم برخورد اسمارت.خروجی ورددی اپتمایز. 
+** فقط کتاب خوندن
+** .ننوشتن تمرین و 
+** مرورو نکردن جوابا
+** . حفظی سر امحتان رفتن به جای رصد سوالات. 
+** بد خط بودن 
+.**  عجول بودن.  
+** مغرور به حافظه خویش::‌تمرین رو حتما حل کردن. بهتر از استاد فهمیدن.
+** چون حافظه عددیم خوبه نمخاد مرور کنم .
+** از نظم بدش میومد. نظم تمیزی میاده . 
+** رویا بافی و خیال روزانه 
+. شاید یه ساعت تو روز میخوندم.کتابای مختلف خوندن و هدر دادن وقت سر چیزایی که معلوم نبود میان یا نمیان.
+**  معیار اشتباه داشتن:‌هر کی اول تحویل بده برندس. اینقدر عجول بدن اسمشونم نمیوشتن.
+** نظم نداشتن و یلخی رفتن به دل مشکلات.
+** مرور نکردن بازار و برگشتن به خرید اول.
+** مرور نکردن برگه و تایم ممنیجمت
+\**نازک نارنجی بودن و صبر و تحمل نداشتن. تاکسی میلاد.
+** تایم مینیجمنت. خوب نشتن و تمرین. محیط پرفرمنت.
+** اصول هیچ چیزی هم بلد نبودی:‌اصول نوشتن جواب. مرور کردن ارام. پاس کردن سوال سخت. 
+** همه تمرینا رو حل کردن
+پولدر بودید کتاب بیشتر ی میگفرتید و میخوندی.
+** خوش بین بودن
+** احساسی بودن.
+** اصلا فک بعدشو نمیکردی و همیشه در لحظه بودی.توی لوکال جواب میداد.
+برای استراتژی همیشه بدون فکر قبلی بودی در صورتی که شطرنج قشن\ بود همیشه .برای همین شط بازی همیشه در فکر بودن و تمرکزه چون دایم باید فک کنی . نه اینکه با حرکت حریف تازه فکرت کار کنه.نه اینکه یه فکر بچینی و بعد از منهدم شدن استرس بگیری و دوباره همون جور ادامه بدی.
+** تمرکز نداشن و سکوت نکردن
+** فعالیت بدنی بیشتر
+*****تمرین عملی . و اسمارت.غیر آنالیزی و شهودی خالص.اولیت بندی. .تنبلی. تمرکز.تایم منیج .عحول و خیالباف و صبر و تحمل بررسی همه جوابا با تست.نظو و خوش خیال احساسی یودن. تمرکز و سکوت و مدوامت. بی خیال و عقب انداز. وقت نشناس. عدم تست. احساسی و بایاس تصمیم گرفتن******
+تسکها یا قدرتی یا استقامتی یا سرعتی. fast strengh durable.
+analytic 100% answers.. timemamangement. focus..hardwork..calm. smile.
+</pre>
 
