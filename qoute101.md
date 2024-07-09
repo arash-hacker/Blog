@@ -952,3 +952,13 @@ youcan learn only when are in zone flow
 8.سیاست و پیش بینی
 ......
 </pre>
+<pre>
+how we should think about solution
+how we play weak/strong/thread/oppur
+pinao worth it? 
+making code reversable is hardest part of swe
+Knowled is ppl older than us, are getting decreasing every second
+Wisdom is we are getting old
+Why sexual profanity to others in fight? We want attack pisical, psychologic,
+And why sx ctx? Not economy,educational(house, school), heigh or phisical, social levels.credit.
+</pre>
