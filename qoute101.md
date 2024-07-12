@@ -1123,3 +1123,75 @@ when you pray thinkers, you won't go further than them. when you think alone, yo
 new airpod way to wear
 defence. parry. deflect .run. damage. attack. sway
 </pre>
+<pre>
+ 
+!!!!!!!
+تفسیر اشتباهات
+Dont miss input output points
+Break down: 
+Evaluate evidence.
+Pattern, trend,bucket, lake, drope
+Logical reasoning.
+Ctx: res/time
+Problem solving.
+
+?????
+
+حضم واقیعت به هر‌ نحو و پذیرش غیر خودی : اپن مایند‌: گسترش ذهن و دامنه با قبول واگراها
+باید مهندسی حل کرد مسیله رو . با انالیایک. انالیتبک ینی مهندسی.
+اگه نتونیم تست کنیم جوابو ، چجوری میخای بفمی مشکل ریشکن شده.
+............تست صحت وروذی، صحت فهم سیستم و توضیح و تفسیر. صحت خورجی ها. و فهمیدن منظور.
+صبر برای هر مسیله که اصولی تموم شه نه فقط تموم کردن. تموم کردن سریع همون زودتر،نمره بالاتر.پشیمونی بعد پیدا کردن باگ.درنظر بگیر پروژه خودته.
+SWTO
+
+
+--------------- Openmindness
+ازاد بودن به قبول و سعی امتخان فرهنگ هنر ادب دین سیاست یه کالچر
+سعی چیزای جدید و مختلف
+اجرای فعالیت هارج از عادت روزمره
+غذاهای ملل
+قبپل تغییر و تحول و نواوری
+دیدگاه جدید کسب کردن
+ازاد به تغییر
+خودبازتابگری
+خودنگاشتن در فرد دیگر
+ازاد به تغییر‌ تک جدید رفتا  ...فیدبک
+فیدبک خاه از دیگران
+ازاد له تغییر و اوتحان چیزای جدید.عقاید.رسوم.تغییر.با دید باز و غیر احساسی و گرنه ماجراجویی میشه.
+... علاقه به گسترش و یادگیری و بهبود یافتن
+خواندن مجله های مختلف. اشپزی و اسلحه و کتابای گوناگون موضوع . ..
+جورنال واجبع: هیستوری نوشتن
+دوربین ضبط و انالیز :idea
+تا بیست سال بعد رو فکر کردن
+
+Listening to Opposing Views: Engaging in conversations with people who hold different political or religious beliefs without immediately dismissing their viewpoints.
+
+Embracing Cultural Differences: Trying foods, traditions, and customs from different cultures to understand and appreciate their uniqueness.
+
+Admitting When Wrong: Acknowledging mistakes or errors in judgment and being open to learning from them.
+
+Seeking Feedback: Asking for and considering constructive criticism from others to improve personal or professional skills.
+
+Trying New Activities: Participating in activities or hobbies outside of one's usual interests, such as learning a new language or picking up a musical instrument.
+
+Reading Diverse Literature: Reading books and articles from various genres and authors to gain a broader perspective on different topics.
+
+Accepting Change: Being adaptable and open to changes in the workplace, such as new technologies, processes, or team structures.
+
+Welcoming Innovation: Supporting and exploring innovative ideas and approaches, even if they deviate from traditional methods.
+
+Engaging in Self-Reflection: Regularly reflecting on one's beliefs, values, and behaviors to identify areas for growth and improvement.
+
+Practicing Empathy: Making an effort to understand and share the feelings of others, especially those from different backgrounds or experiences.
+--------------------
+
+!!اگه خودش نخاد نمیشه علامت بدی
+ایا جنگ، ارزش امتحان دارد
+چیزی از تپ خیابون ور ندار، مگر پول شست شوشو کم کنی
+با هر اهنگی خاطرات هم ضبط میشه.
+هر تصویر نمایانگر یه خاطره س که دژاوو میشه .
+هیچ قانونیذوجود نداره
+
+---------------
+آنالیز ینی انیمیشن بزرگ.کوچک کردن سیستم فعلیس و فعالیت های درونی
+</pre>
