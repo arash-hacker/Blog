@@ -1231,3 +1231,15 @@ Jql: هواندن دذاک و فهم اجرای دستور
  Break down in analytic is wrong: some problem comes with butterfly effect.
 
 </pre>
+<pre>
+clarification:
+    define problem
+    gather information
+think outloud: talk before write:trade-off:
+   gen solution
+   evaluate sol
+   sel best & impl:
+     tesable  -> solution without testable is guess only.
+ doc: conclusion:PMA:
+ edge-cases: review:
+</pre>
