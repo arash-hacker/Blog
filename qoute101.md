@@ -1238,8 +1238,9 @@ clarification:
 think outloud: talk before write:trade-off:
    gen solution
    evaluate sol
-   sel best & impl:
-     tesable  -> solution without testable is guess only.
+   trade off:
+     sel best & impl:
+       tesable  -> solution without testable is guess only.
  doc: conclusion:PMA:
  edge-cases: review:
 </pre>
