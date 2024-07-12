@@ -1117,3 +1117,9 @@ O O   :pred2
 زمان رو که داری هدر میدی٬ حداقل درست هدر بده
 هر عاملی داخلی رو میشه با تغییر عوامل خارجیش تغییر داد.
 </pre>
+<pre>
+ 
+when you pray thinkers, you won't go further than them. when you think alone, you can beat those mfs/
+new airpod way to wear
+defence. parry. deflect .run. damage. attack. sway
+</pre>
