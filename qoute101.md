@@ -1228,5 +1228,6 @@ Jql: هواندن دذاک و فهم اجرای دستور
 انالیژ کن چقدر طچل میکشه.
 تست برای چک نه تست یزلی تایید حرفا. اصوبی تست کنیم.
 
- 
+ Break down in analytic is wrong: some problem comes with butterfly effect.
+
 </pre>
