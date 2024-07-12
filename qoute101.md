@@ -962,3 +962,158 @@ Wisdom is we are getting old
 Why sexual profanity to others in fight? We want attack pisical, psychologic,
 And why sx ctx? Not economy,educational(house, school), heigh or phisical, social levels.credit.
 </pre>
+<pre>
+ Journaling
+testablility and analytic are like brothers: test input, test output and scenario
+
+
+Ensure input are safe and ready to process:
+** Objective: Determine the feasibility of launching a new product.
+** Criteria: Relevance, quality, completeness of market data, customer feedback, competitor analysis, financial projections.
+** Methods: Use checklists, SWOT analysis, and market research frameworks.
+** Patterns: dentify patterns, trends, and common themes in the gathered information.
+** Gap Analysis: Ensure no critical market segment or customer feedback is overlooked.
+** Expertise: Consult product development and marketing experts.
+** Constraints: Balance thorough research with project timelines.
+** Review: Iteratively review gathered information with the team.
+** Readiness: Ensure all critical factors are addressed and decision-makers are confident.
+** Stop Criteria: Cease input gathering when new data no longer provides new insights.
+----
+Steps in Analytical Thinking:
+
+Systematic Approach:
+Analytical thinkers approach problems methodically, breaking them down into smaller components or steps to address each part individually.
+
+Attention to Detail:
+They pay close attention to details, ensuring that no aspect of the problem or information is overlooked.
+
+Critical Thinking:
+This involves questioning assumptions, evaluating evidence, and considering alternative perspectives or solutions.
+Pattern Recognition:
+
+Analytical thinkers can identify patterns, trends, and relationships within data or information.
+
+Logical Reasoning:
+They use logical reasoning to connect pieces of information and understand how they relate to one another.
+
+Decision-Making:
+Analytical thinking helps in making well-informed decisions based on careful evaluation and logical conclusions.
+
+Problem-Solving:
+It involves identifying the root cause of problems and developing effective solutions.
+
+------------------------------------------------------
+
+Steps in Engineering Thinking
+
+Define the Problem: Clearly articulate what the problem is. Understand the scope, requirements, constraints, and goals.
+
+Gather Information: Collect relevant data, research existing solutions, and understand the underlying principles and factors that influence the problem.
+
+Generate Solutions: Brainstorm multiple potential solutions. Consider various approaches, materials, technologies, and methods.
+
+Evaluate Solutions: Assess the feasibility, cost, time, resources, and risks associated with each potential solution. Use simulations, models, or prototypes to test their effectiveness.
+
+Select the Best Solution: Choose the solution that best meets the criteria and constraints while providing the most benefits.
+
+Develop and Implement the Solution: Create detailed plans, drawings, or algorithms. Develop the solution through building, coding, or assembling as necessary.
+
+Test and Refine: Test the solution in real-world conditions. Gather feedback and data to identify any issues or areas for improvement. Refine the solution accordingly.
+
+Document and Communicate: Record the process, decisions, and outcomes. Share the findings and solutions with relevant stakeholders.
+
+Monitor and Maintain: After implementation, continually monitor the solution to ensure it performs as expected and maintain it as necessary.
+================================-==========================
+*1*Identify the Problem:
+Clearly define the problem or question that needs to be addressed.
+*2* Gather Information:
+Collect relevant data and information from various sources.
+*3* Break Down the Information:
+Decompose the information into smaller, manageable parts.
+*4* Analyze the Components:
+Examine each component critically, identifying patterns, relationships, and key factors.
+*5* Develop Hypotheses:
+Formulate potential explanations or solutions based on the analysis.
+*6*  Test and Evaluate:
+Test the hypotheses through experiments, simulations, or further analysis, and evaluate the results.
+*7*  Draw Conclusions:
+Draw logical conclusions based on the evaluation and make informed decisions or recommendations.
+*8*  Communicate Findings:
+Present the findings and conclusions in a clear and concise manner, often supported by data and evidence.
+::::::::::::::::---:::::::::::::::::::---:::::::::::::::::::---:::::::::::::::::::---:::::::::::::::::::---:::
+تفسیر اشتباهات
+Dont miss input output points
+Break down: 
+Evaluate evidence.
+Pattern, trend,bucket, lake, drope
+Logical reasoning.
+Ctx: res/time
+Problem solving.
+
+:::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-:::::::-::::
+there are 2 way to solve problem , and there are 2 time to check, find and test.
+“If you don’t change direction, you may end up where you’re heading.”
+- Lao Tzu
+- you need to practice until you can’t do that thing wrong, not until you can do it right.
+- \\---
+- stack skills to reach new
+- idea: giphy as your service for your work.
+- به تنهایی همه علوم کامپویتر رو تست کردم بدون اینکه از بست پرکتیسا نگاه کنم.
+- از خروجی خودم ٬ ورودی جدید میگرفتم .
+- بدون ورودی مدل الگو ٬ خروجی ارزوها رو نمیبینی
+
+----
+
+
+----
+چرا باگ تکرار میشود و حل مسایل مشایبه
+و تکرار باگ و تست جواب برای بردن مسیله
+
+چسبیدن به اصول و مفاهیم اولیه:‌ست پایتون. 
+php server. نمودار uml , feature
+
+--
+space, time, zoom, config: graph, feature-shot(state) by (time, space>>feature, avg, sum, grid).
+
+what i expect: predict
+what I recieve: result
+
+شعر فارسی ترکی الماین برای کانکت و کانتکسو قافیه زبان
+ریتم به زبان مربوطه: اسپانی سنتی ایرانی
+
+تا حالا فاکتور (در ذهن ایتم تصور کردن) یک بوده. ولی اگر بالا وضعیت بهتر میود.
+کارگر زرنگ : جه عاملی ملیت رو زرنگ میکنه. : از خن استفاده کنن
+مشاغل عادی با هوش بالا چگونه میشوند.
+
+روح لخطی تنبلی دارد
+
+تایم لاین فکری : چون بدون اون روند بهبود / پیسرفت نمیشه به یاد سپرد.
+diff analytic and engineer: 
+break down to sub problem , 
+pattern and connection finding in analytic.
+Engineering goes by hypothesis but better to use analytic and provide trade-off and problem solving
+--
+break down problem: skipping or look over effects when consider componenet togeher like gravity, side effect for system. is all when you consider component seperately. or miss total avg,sum,....
+
+
+
+<><><><><><><><><><><><><><><><><><><><><><><><><><><><><><>
+tactical: diagonise(debug)
+critical: history
+::
+prescreptive: systematic (trade off)
+predective: strategic (forecast) → result
+
+                              __ / prediction (> prescript)
+diagonis    /     |
+history       ----  |   --- result
+
+         CTX
+--------------------
+❌ O :pred1
+O O   :pred2 
+✅ ✅ :pred3==prescript
+<><><><><><><><><><><><><><><><><><><><><><><><><><><><><><>
+زمان رو که داری هدر میدی٬ حداقل درست هدر بده
+هر عاملی داخلی رو میشه با تغییر عوامل خارجیش تغییر داد.
+</pre>
