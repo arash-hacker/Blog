@@ -1233,11 +1233,16 @@ Ao: پیگیری ترکه بابت اررور سمت خودشون
 </pre>
 <pre>
 clarification:
+    00.understand system fully
     11.define problem
     22.gather information
 33.think outloud: talk before write:trade-off:
-   gen solution
-   evaluate sol
+   gen solution:
+        top-down:
+           brain-storm, tactical, hack, patch, SCAMPER
+        down-top:
+           analytic, simulation, details-matching,
+   evaluate sols
    3.4.trade off:
      sel best & impl:
        tesable  -> solution without testable is guess only.
