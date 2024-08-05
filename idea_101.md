@@ -787,4 +787,142 @@ interview.io dimakoroloc.مصاحبه ها امادگی برای پرینس.اس
 تسکها یا قدرتی یا استقامتی یا سرعتی. fast strengh durable.
 analytic 100% answers.. timemamangement. focus..hardwork..calm. smile.
 </pre>
+<pre>
+ قلب پای دوم شماس
+Why happened,what lessons
+DDPP
+Clarifi.diffination.data gat...tradeoff.
 
+خرص تندر
+سبقت ناشبن تو بزرگراه، جمعیت ببشتر سرعت کمتر.
+تعریف مساله و تعریف فضای مسیله
+اولین قدم حل مساله: تعربف و توصیف صحیح سیتستم ، ورودی و خروجی است.وقتی دیباگ شما نتیجه ندهد یا خلاف باشد قطعا فهم شما از سیستم کم،بد، هالو بوده.
+بعضی وقتا حرفا رو تفسیر میکنیم تو‌ذهنموم همزمان و سوتفاهم میشه
+لایف ایز تست، تست معلومات ، تست درست فهمیدن سیستم.ما به چیزایی که سر جاشون نباشن مبخندیدم
+ازاد بودن اندیشه برای فکر کردن به هر مسیله ای بدون ایمپاستر، بدون خودکوچک بینی، بدونضعف و ترس: چرا مبخندیم
+هرگاه چیزی در جای درست نباشه میخندیم.مگه مزشو از دست بده و تکراری بشه عصاب بهش.
+پس چرا به مشکلاتجدید که جای اشتباهن نمخندیم.چون مشکل ینی بدبختی و فلاکت و نابودی. تاثیر محیط❗️
+
+ده جک خنده دار:
+توتدفرنگب سخنگو
+اجاق گاز چپه
+
+......
+شو رو دوست نداری , تریلشو حداقل ببین که تستت درست باشه.(در مورد سبک فیلم)
+Dont need forcast or predict, understand the system and workflow then you know anythibg w predict. 
+Test your knowledge w test.
+مردم همیهش اشتباه میکنن. مثلا درصد ملتی که کامنت منفی میزارن نسبت به واقعیت. پس زیاد ناراحت نشو اگه فهمیدی اشتباهی، چون همونم اشتباس
+
+I must ask them send incoming request. FE to BE.!
+BE:But tou can scan incoming req, you should alarm me><M>M for wrong income not by checking my sent req
+
+
+الکی مثلا ژانر: مونا مبگه، ما پارک ابی بودیم، الکی مثلا ما هنیعش اپنحایم
+ با با ماسک  صورت میوه نمیخوریم، ما فقط مشروب میخوزیم
+این خانواده بچه های المپیادی ٬ دیگه مثل سابق نیستن٬ الکی ٬ مثلا ما چند ده نسل 
+قلقلک مغزی٬ کشفه . خلاقیته و اختراغ و نو اواری
+یکی از دلایل گریه بچه ها٬ عدم بیان جملات به مفهوم است و بیان کلمه: دایره لغات
+یه سری حسای جدید هم اضافه شدن مثل امپاثی : جای بابام فرض کنم خودمو . جای عمه . جای داداشم. ..
+مثل امدیام اثر داره که عشقو بیشتر میکنه .
+عیرضا شهصیت سگ داره، من گربه ایم.
+
+کیه اهل جهنم که خونش تو فرشته٬ 
+کیا اهل بهشتن٬ که خونشون به گاعه  
+کی فردوس برینه که خونش رو میرینه
+ اهل فضل، اما آن را نمی‌فروشد
+ارض : کلمه‌ای الکی بود و نماد حماقت
+فرق تجربهگری و حماقت
+chihauhau gen from wolf
+حادثه شب ساری و جیغ میتونست قشنگ سرنوشتتو پایان بده 
+هر چند چراغ قوه و تصویر تخمی خودت بازم میتونست سرنوشتتو عوض کنه و پولدار شی 
+رند یه معتقد شکاک است٬ که ازمون خطا میکند. بی اخلاق نیس.
+, movie: ugly fat lady cleaner in gym 
+ماری و جو روگان سه ساعته
+برنامه های خندهوانه طور افلاین و استنداپ های انلاین و لایو مهمان . جو روگان تفاوت خنده اوردن
+
+بو ها هم ممکن است مثل تاچ‌باشند. همه چی تاچ هست که سس میاره. یا صدای موزیک بلند. یا صدای در گوش.
+پس ما همه چیزو لمس میمنیم و در ارتباطبم.و بر ما هم تاثیر میزارن.
+چیلین نلاین idea: 5 top ppl talk. But daily .
+ جغل مرگ پدز
+
+:cytokine microscopic damge for brian like muscle to repair and grow
+
+Tinder festival in person 
+you are not interested in handsome person, you just didnt see enough attractive to be normal to yo 
+
+
+Idea: musoc w plastic rattleing shaking 
+.......
+Dating app wo tezting
+guitar electric rock and cat voice. why we love it 
+What if u were woman, what was your ideal man?
+
+If u involve emotion, u mostly get sad.
+But logic instead u can decide when to happy or in still.
+On chess u dnt calcate every move, u peedixt range of outcomes
+Deformable savable chair for each person
+Peace of shit
+U can predict per day, of u are not per mpnth calculstor or year even 
+Communicate ins of speak up.
+Ppl learn to act verb based on occasion not meaning 
+علیل در بخش کتاب های پزشکی و روانی در سایکولوزی
+Thinking fast, bad, uncompl is worser❌
+
+Vocal:piano
+
+Be ready: for scsnrios 🧠
+Skin age:  is very portant 🧠 sleep, breath, water, eating, hair, cigaret.
+Stamina: 🧠
+If u get angry, u r weak🧠
+Thinking fast, bad, uncompl is worser🧠
+--------
+U only need get J 🧠🧠🧠
+Listen ur voice 🧠🧠🧠
+..........
+1.Simplicity, 
+2.Humor,  
+3.Openmindness, 
+    Progress
+          Commitment(loyal)
+          CRespect, dnt compare, earned
+4.Honest Communication w feedback  ✅
+5.Team work
+    Empathy
+    Kindness -> generous
+........
+3.Ambition,
+1. Simple
+1. Transparent
+1. Direct and assertive
+0.Confident
+5.Empathy
+5.Generosity
+3.Humor
+5.Kindness
+3.Openness
+0.Optimisum
+2.Playfullness
+0.Sassyness
+0.Leadership
+3.Curiosiry
+5.Gratitutude
+0.Humility
+3.Loyality
+2.Sarcasm
+...........
+See image of history as story
+
+Listening far, voice, guitar, pianio, russian,chessssss, compose, hiking, bouldering, photography,cycling, climbing,billiard, volly, swim, padel, ...
+
+Shape shifter personality test
+Let ppl work for u as planner, change weights.
+
+The fist one to get angry losses.
+Size of man: size of things bother him
+for condident, fake it , then it comes.
+Conscious body language.
+North south, south north
+idea: instrument water tap
+
+نپرس از خودش، از دور و برش بپرس
+</pre>
