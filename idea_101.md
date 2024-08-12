@@ -883,12 +883,12 @@ Listen ur voice 🧠🧠🧠
 2.Humor,  
 3.Openmindness, 
     Progress
-          Commitment(loyal)
           CRespect, dnt compare, earned
 4.Honest Communication w feedback  ✅
 5.Team work
     Empathy
     Kindness -> generous
+6. Commitment(loyal,stable, reliable, safe, calm, trust)
 ........
 3.Ambition,
 1. Simple
