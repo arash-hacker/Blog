@@ -926,3 +926,78 @@ idea: instrument water tap
 
 نپرس از خودش، از دور و برش بپرس
 </pre>
+<pre>
+ S:===========>
+mindfullness, 
+meditatte,
+focused
+ctx provided/ todo list
+practice to fully active read/hear/watch
+Journal
+review your task for details and checklist
+===========> Do one job mindfullness w checklist.
+
+J:===========>
+Planned ahead d/w/m/y
+prepare contigency plans
+Prioritize
+Pomodor
+Decisive
+Reflect\Review Progress Regularly
+Establish Routines
+============> Plan Ahead & Decisive Stick w Pomodor & Review/Reflect
+
+STJ: clear rules & expectation planner: academic life-used knowledge
+STP:hands on & practical in moment : practical life-used knowledge
+P: dyn env, adaptibilty, 
+T: problem solving, logical
+J: strucured, organise
+S: detail, reliability
+
+mental, physical , emotional
+adhd, حواسپرت و بیقرار
+cigar and non-judjement and organiazed , decisive
+
+detail-oriented comes from repeating multiple task and get photographic memory about task 
+you repeat from checklist and context and it's your muscle - brain memory 
+you don't need to fix ppl, love them as they are now, feedback if they can capable of them. the only things you need to fix is your bugs, not their.
+
+......
+چرا هی بهش فک میکنی؟چون میخام بدوپم اون چی فک میکنه درموردم. و آینده چطور مبشه در موردش
+سرزمین بدون دروغ
+انسان تکی به جنگ‌ربات های حاکم
+https is good mbti
+Professiol linkedin w slurs
+
+انواع اخلاقیات و رفتارات
+Mbti baf.good faces
+......
+
+NTJ: Architect and Strategist
+J: Intolerance, incompetence practice, impatience,
+over confident.stubborn,delegation problem.rigid,anti spontaneuosly, high standard
+:::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+- non changable, perfectionist, angry, impatient,close mind, booked, stubborn, cocky, non practical, incompetence.
+****************************************
++ routine friendly, decisive, practical, confident
+==========≠=========≠==========
+NTP: Thinker and tactical
+P: anti routine, anti subjective(objective), 
+ indecisive,over analytic,anti practical and mundane,.
+:::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+- Analytice, Non-Practical, Non-Routine.
+***************************************
++ $pontanesly, openmind, Tolerance, non cocky, delegation.
+&&&&&&&&&&&&&&&&&&&&&&&&&&
+Patient, easy going, flex, practical,
+routine friendly, decisive, mindfullness, confident
+Spontaneos, Subjective,planned strategic
+
+
+......
+حرامزاذگان متنی
+Interpolate fr current data!!
+Idea: two movie side bybside to tell stories
+
+
+</pre>
