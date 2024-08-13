@@ -1000,4 +1000,15 @@ Interpolate fr current data!!
 Idea: two movie side bybside to tell stories
 
 
+ CTX trade off ==> Analyze diff angles : What can go wrong : Future plans even years: Tesable solution (Simulation) or implementable,  
+
+Mbti based on rush and core value alongside routines: 132 type
+
+SWOT daily review, Planning ===> hcess related
+S => O
+W=> T
+w1< W2
+S1<=>S2
+ win Sx> Wy (by turn)
+
 </pre>
