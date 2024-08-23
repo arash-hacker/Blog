@@ -1110,6 +1110,16 @@ INTP
 overanalys
 procrastination.     تغییر علاقه.  تاخیر یا زیاده رو
 change interest
+-----
+General:
+Overthinking vs Procastination
+Understimate external factors
+Patient routine
+Focus
+_______
+Tesability
+Mindfullness
+Percentage Factors
 
 -----
 E   عجول
