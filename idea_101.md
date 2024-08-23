@@ -1012,3 +1012,117 @@ S1<=>S2
  win Sx> Wy (by turn)
 
 </pre>
+<pre>
+ the odds are good but the goods are odd
+
+Idea: body checker app, interest , match maker, game include event like city.
+
+relationships: 
+past: how did you came here. 
+now: how you solve your problems. what problems you have? 
+future: how you wanna be? 
+core values: how you behave in red flags.
+Your progress make ecerypne envy
+Personality and skill in cmmitment.
+Smart tells correct fact, idiot tell lies or pure trutth
+----
+INTJ
+Overplanning and Rigidity
+Overlooking Practical Details
+Underestimating External Factors
+Poor Communication
+Perfectionism
+Isolation in Decision-Making
+Resistance to Change
+ENTJ
+Overconfidence
+Impatience
+Overreliance on Authority
+Failure to Account for Emotional Factors
+Difficulty Adapting
+Micromanagement
+Neglecting Team Dynamics
+Overemphasis on Efficiency
+ENTP
+Overenthusiasm and Lack of Focus
+Underestimating the Execution Phase
+Inconsistent Follow-Through
+Resistance to Routine
+Overconfidence in Improvisation
+Overcomplicating Plans
+Neglecting Practical Considerations
+Struggles with Long-Term Commitment
+Challenging Authority or Established Systems
+Difficulty in Delegating
+INTP
+Overanalysis and Paralysis
+Procrastination
+Difficulty with Practical Implementation
+Lack of Follow-Through
+Disregard for External Input
+Perfectionism
+Underestimating Time and Resources
+Resistance to Structure
+Communication Challenges
+Changing Interests
+----
+Common Problems Across All Types
+Overconfidence: Overestimating their ability or underestimating challenges.
+Perfectionism: Getting caught up in details or setting overly high standards.
+Difficulty with Practical Implementation: Struggling to turn abstract ideas into practical action.
+Lack of Follow-Through: Losing interest or not seeing projects through to completion.
+Communication Challenges: Difficulty in clearly conveying their ideas or plans to others.
+Resistance to Change/Structure: Struggling to adapt to new information or adhering to necessary routines.
+Distinct Problems per Type
+INTJ
+Overplanning and Rigidity: Being too rigid in their approach, leading to difficulty adapting when things change.
+Isolation in Decision-Making: Preferring to work alone, which can result in missing valuable perspectives.
+Underestimating External Factors: Over-relying on their plans without fully considering external influences.
+ENTJ
+Impatience: Wanting quick results, which can lead to rushing the process.
+Overreliance on Authority: Assuming others will follow simply because of their position, without ensuring true buy-in.
+Micromanagement: Taking too much control, which can stifle others' contributions.
+ENTP
+Overenthusiasm and Lack of Focus: Getting distracted by too many ideas at once.
+Resistance to Routine: Struggling with the repetition needed for consistent progress.
+Overcomplicating Plans: Creating overly complex plans that are difficult to execute.
+INTP
+Overanalysis and Paralysis: Overthinking to the point of inaction.
+Procrastination: Delaying action, especially on routine or less interesting tasks.
+Changing Interests: Quickly losing interest in a project and moving on to something new.
+-----
+ENTJ
+imPatient
+Athority.      مدیریت عجول خودسر
+micromanager 
+----
+ENTP
+Complicated
+lack of Focus.      . زود اشتیاق از دست بده. عجول غیر متمرکز
+passion in routine
+----
+INTJ
+overplanning
+isolation تنهای زیاده روی خودسر
+external factor miss
+----
+INTP
+overanalys
+procrastination.     تغییر علاقه.  تاخیر یا زیاده رو
+change interest
+
+-----
+E   عجول
+I:‌   زیاده روی و بیراهه زیاد رفتن 
+P: اشتیاق یا تاخیر 
+J: خود سر و تکرو و منفرد و سرسخت
+-----
+سن عقلی 
+آرزوها
+تست در مقابل ایده های مخالف
+نحوه برخورد با مشکلات حل نشده٬ و کسب راهنمایی
+نحوه فکر کردن و ایده دادن برای مشکل شما
+تست عصبانیت
+
+
+</pre>
