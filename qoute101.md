@@ -1264,3 +1264,27 @@ clarification:
 صد صدر به سرت بستم
 سرسر تچ شراسیدی
 </pre>
+<pre>
+
+ theyre racist and They hate u. And they suffer for ur being.
+
+Not u suffer from their being
+
+Back in day their earn title sir, duke...now they identify title
+
+Its 50% happy, 40% dnt care, 10% cleaning. When see coleagues tell we miss u
+
+Idiot stayed in past always.
+Ppl dnt remeber cause not pay qttention, not bcs idiot they r
+
+hindsight is finding pattern
+تنبل معمولا خنگه
+از فرق تصاویر به نتیجه میرسیم تا از نتیجه به مقدار تفاوت
+
+If u thing u r right, u wont change.Chnage is accepting the diffs
+
+office work is like marathon, you need spend 4-5 hours straigt to work
+Surprize make u laigh
+Analyze is wrong of either bad system simulation(testable) or lack of effective factors(exp) or short-term focus(brain muscle).
+
+</pre>
