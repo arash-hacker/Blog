@@ -1136,3 +1136,15 @@ J: خود سر و تکرو و منفرد و سرسخت
 
 
 </pre>
+<pre>
+My fault analyze daily
+Plan B C D: What goes wrong || From diff angle → do it in mind bkup
+=====>    MAKE GIT LOG GRAPH HISTORY
+
+
+......
+spy university with different skills
+turn linkedin to dating apps: lovedin
+Journaling : good bad ugly.    history is important
+Movie about suffering all seasons to annoy users
+</pre>
