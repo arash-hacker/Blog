@@ -950,6 +950,16 @@ youcan learn only when are in zone flow
 6.تواضع
 7.سخت کوشی
 8.سیاست و پیش بینی
+8 prosperity virtuos
+ 1. Relax/Calm
+ 2. Reputation/Credit score
+ 3. Justice & Equity
+ 4. Good vibes/Drugs
+ 5. Patience/ shall pass
+ 6. Humble/ Ground on earth
+ 7. Hard working / strive
+ 8. Politic and prediction
+ 
 ......
 </pre>
 <pre>
