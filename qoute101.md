@@ -1298,3 +1298,52 @@ Surprize make u laigh
 Analyze is wrong of either bad system simulation(testable) or lack of effective factors(exp) or short-term focus(brain muscle).
 
 </pre>
+<pre>
+If u dnt use ai nowdays , ur r iliterate, not english cputer
+If u dnt pay attention to prblm thy dnt bthr u
+creative arts happen in mid/after creation and appling scamper.not at the beginning which you dont have clue.so nobody comes with creative idea at first place.
+Hack the planet? Its already hacled
+Memories r drug. Dopmind producer and sad increaser
+just bcs they r different, nt mean thy r bad.
+Bishop, queen,rook vs horse(lgtv)
+Maybe we love fprvaliento run their simulat
+Finding pattern make surprize 📍
+bulshit: smart ppl hire smarter ppl than themself→ then how they correct them? how they defend against theem? 
+what as child make us laugh, does that in adult too
+pikachu games, hide and seek, learning as fact, finding as fact and adventure, mischevious, fooling,goofing and similarity of pattern❗️ ....
+سختی کوتاه فعلی، اسایش دایمی فردا به شرط سود اوری
+شنیدن دیدن بویایی فکری خوردن اشامیدن با فکر و تعمق
+سرویاه زمانی، پول خوانواده، سلامتی، خانواده متعلقات
+How u remember & train drom world ...
+What make u laugh is a out ur chikdhood
+Pikachu, gaming, hide abd seek, learning as adventure, find similarity from theory to applicarion(see real lion from zoo)
+
+farghe faheshe and chorn in farsi adabiat: taghire fahesh.
+focus and journaling output is keyof progress.
+knowing about other alternative approach and hacky/standard ways by asking chatgpt but think before asking.
+its' artificial intuition not intelligence, cause we dont feed reasons, we feed data to bring intuition.
+slow→ fast : repetetive correct slow train, then speed up
+fast→ fast: repetetive wrong but correct overtime fast train
+love, trust, sorry need only proof action/change can be fake
+engineering : Trade off and (isolate)testability and feedback r core of engineering mindset.❗️ 
+Opps of engineering: chaos, improvision, non goal oriented , unstructrual,brute force, non problem solving: art, philosophy...
+U cannot understand a aystem until u cha ge it 
+we love blending and gradient in music, painting, art ... because it's hard to achieve and not conceret attached pieces.❗️ 
+
+درس عبرت به جای تاریخ
+-----
+Patient, Easy going, Practical, Poker face
+Routine friendly, Decisive, Mindfullness, Confident
+Subjective/Objective, قانع
+Planned strategic, Spontaneos
+Hourly diary w/ review feedback from Planned day.
+----
+Swamp corpse hidden
+دهاتی اوهه که بقیه رو دهاتی فرض کنی
+هر‌چی‌دیگران رو فرض کنی، خودت همپنی
+چیزی که خوشمون نیاد همیشه تلخه
+ادم وقتی ناراحت میشه که از خودش ناراضی باشه
+کلید شادی راضی لودن و ناافسوسه
+عقیده.ی مخالف در ناخوداگاه، مخالف میماند.
+خودت را قبول کن حتی ناقص
+</pre>
