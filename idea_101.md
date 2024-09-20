@@ -1148,3 +1148,56 @@ turn linkedin to dating apps: lovedin
 Journaling : good bad ugly.    history is important
 Movie about suffering all seasons to annoy users
 </pre>
+<pre>
+after 10000 drawing ن , this was best ن  I draw ← 
+gt: vnfrdepossxqyg
+---- new human personality test
+strong/ body(tall)/ mind(education)/culture(family)/ job(money)
+discipllined / shick / casual / dont care
+bossy / obeyed
+adventurous/ in still
+cruel/ so-so /emo 
+quick / slow
+Td/dt dwn top
+-- mental issues
+greed / frugal (tolerance with curretn money)
+angry / calm (less tolerance control)
+envy / calm (less tolerance self loss/ self achievement)
+politic/ easy going (too much lazy/ brain usage tolerance)
+empathy/ pride (self-steem tolerance)
+lust/ eremite (sexual tolerance)
+glottony/ quick (too much tolerance)
+Tolerance or lazyness
+UNKNOWN?  tolerance about kids?????
+UNKNOWN?  tolerance about loss?????
+UNKNOWN?  tolerance about beauty?????
+UNKNOWN?  tolerance about tolerance?????
+UNKNOWN?  tolerance about attribute?????
+
+1. Relax/Calm - rush and hasty
+ 2. Reputation/Credit score seeker easy going
+ 3. Justice & Equity Moral / self centered
+ 4. Good vibes/Drugs - reality check 
+ 5. Patience/ shall pass / organized | stress and waiting perceptive
+ 6. Humble/ Ground on earth | pride and attention seeker
+ 7. Hard working / strive | lazy and afraide
+ 8. Politic and prediction | live in moment 
+ 9. optimiset/ pessimist.
+
+A man has something from everybodyelse (fighter, writer, jandark,... )
+maybe should categorize and address how similiar they are
+----
+"Why" english 12 yrs usad and tok 20/20 english exampl
+---------------------
+I also will share our conversation on the internet, and sue the company for that. Every body should know how Klarna is 
+
+Spy trait habit: half eye ipen
+repetetive Sound takes fettish and ocd not act
+Remembering what foreigner said and record it to process it later.❗️ 
+---
+مردم‌پول‌نداشتهدباشن، تبلیغات فایده نداره
+کسی که قدم زدن دوست داره تا مقصد رو ٬ بیشتر از حد معمول قدم میزنه  جتی اگه به مقصد دیر برسه 
+i dnt focus on what bad thing can happen, I focus on likelyhood and percentage of all(good/bad/neutral)
+for happening
+make a library of ppl and put evidence into it. ❗️ 
+</pre>
