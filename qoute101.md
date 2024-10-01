@@ -1347,3 +1347,14 @@ Swamp corpse hidden
 عقیده.ی مخالف در ناخوداگاه، مخالف میماند.
 خودت را قبول کن حتی ناقص
 </pre>
+<pre>
+If u relqx, cannot be anxious.
+Cant have two opposite emotion at time.
+Positive stimuli have stronger effect.
+Ciagr is npt ur friend.
+Good acts, event little should be awarded and increased by stages. Staged rewards.
+
+Life is nkt fair, if you got sad, u r not creative!!!
+smile on your face, make you happy(one mood per time), annoys enemies and chills your friends and better your social impact first impression.
+
+</pre>
