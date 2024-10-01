@@ -1201,3 +1201,62 @@ i dnt focus on what bad thing can happen, I focus on likelyhood and percentage o
 for happening
 make a library of ppl and put evidence into it. ❗️ 
 </pre>
+
+<pre>
+
+כ'לאצה כטאב סאבסכראיב
+Finding unconcious gestalt before frud
+
+אסאל בא נון
+ארטש כוכה
+אז דאסטאם שׁאךי
+מחאלה
+....
+אופנ בודנ אדמא בראי תח׳ארב ח׳דיד
+כ'ובי בה כיג׳ראנ 
+
+ז'אפני 'כאנדנ ו נושטנ
+פ'אז דומ עברי נושטאר
+
+שמא 900 כאלאמה פ'כר מוכנוד דאר דאקיקה
+400 טא מישנאוד 
+125 האמ סהבת מיךנים
+
+"زنگ تفریح خانه با صفای دل‌انگیز جوشش کار می‌پرد."
+"خپلی زشت، قیصر و ژولیدگی همکار فوق‌العاده باغ را دید."
+"جوانمرد تیزهوش با ذوق، ظرف گران‌بهای زیبایی را خرید."
+"آن مرد بلند قامت، با ژست خاصی روی صخره‌های خشک قدم می‌زد."
+"یاسمن رنگین‌کمان را به ژرفای تندخوی غمگین سپرد."
+"شوهر قوی‌هیکل با ژاکت ضخیم در فضایی بزرگ می‌خرامید."
+סואל אונה, איא ז'נדכ'י מאני דאראד כה מא דנבאל אנימ?
+
+سیستم فکری تو عادتها رو‌میسازه📌
+Believe is what we see
+סאד סאפ'ר ורי
+וקדי דניא נא אדלאנס, חרא מיפרסימ "why me"
+差をラスレネをす。すをきをて？
+שמא נאדאנ ניסטיד, ךאמ טגרביד.
+
+Leaenng is process not product
+Unhappy bring unhappy mmemories vice verca
+Brain has 7 spot 
+Dnt feel it with garbage memory and waste
+やみし　ゆえ　まだあれ　ぜえんてえい　あせて　け　やすで
+
+מהאנדסי כ'ווב קאבל בארכ'אשט אסת.
+האמישה וא היחוקד כאלאמאטה כהאתארנאכ האסתאנ
+
+ראבטה כה סארי באשה , זוד האמ כ'אתה קרתז רד מיכנה 
+
+
+There is no good or bad, its slop, upward and downewrd of behaviour
+داستان های منطقی، برای بچه های منطقی❗️ 
+LOUI _KING ❗️
+MIND BUILDING GYM❗️ 
+If u act good, society will learn and act good too.(reaction)
+
+
+
+
+
+</pre>
