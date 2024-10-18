@@ -1358,3 +1358,43 @@ Life is nkt fair, if you got sad, u r not creative!!!
 smile on your face, make you happy(one mood per time), annoys enemies and chills your friends and better your social impact first impression.
 
 </pre>
+<pre>
+Not thinking abt past, is not accepting past! 
+Getting conclusion abt past is good time to time
+Doing mistake is fine, repeating is time waster
+سیستم مریض، کار سیستم شما رو مختل میکنه، نیازی نیس همه رو تعمیر کنی. به جاش قابلیت استفادشونو بررسی کن.
+
+سیاه و سفید نباش، گاهی خاکستری هم خوبه القا بشه(مصالحه
+لایک و دیس لایک در انلایتمنت وجود ندارد، منطق خالص است
+به کلمات توجه نکن، دانه معنی بگیر
+با کلمات بازیچه نشو و تحریک‌نشو
+Think about compatibilty of ppl not gain/loss game
+This behaviour is good , now is mine
+ادمی همیشه چیزای نو و تازه رو‌تعریف میکنه، قدیمیا ۱حوصلهدذو‌سر مییرن
+Ppl by default r lszy, tend to make diffcult
+why not optimistic about past and future together?
+چون به گرینه وجود داره، دلیل نمیشه جواب قطعی باشه
+Firat you need to find it, then u need to fiz it .,!!!🤝
+Mind is like muscle, nweds train to not fcus deliberaسte.!!!!
+Fuck theo, eve ia chabge w exp!!!
+first product is not always on time, you get feedback and timing after first try and get better by iteration.
+خیلی خنده داره دانشمندادمعنای زندکی رو از هیپی هلی نود ساله میپرسن، و جواب همیشه یکیه
+-------
+لارا کاگا سزای تعدی، حبیب شجاعی چخ کردنه. حفحپ
+LR, KG, SZ, TD, HB, SHJ, ChKH、, HFHP。
+Kstn hmyrva
+-------
+you pay everything with your time, you can invest work harder(mroe time now, less time future) or have more money(save time with previous time consuming)
+total mental note calculating 
+....
+testable solution: is revertable ones. or brig back default state(snapshot)
+or simluate process to show it works
+tesable and revertable and trade of is key of engineering 
+....
+U afraid bc u didnt calc current threat.
+ادما رو کیخای بشناسی نحپهد برهورد مشکلاتشونو ببین
+صدا در حس ترس اثر‌داره، پس کرها ترس تحربه نمیکنن!!
+Bad part about close mind ppl, they think they r open minded and dnt consider myby they r wrong
+
+
+</pre>
