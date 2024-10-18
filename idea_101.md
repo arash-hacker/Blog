@@ -1260,3 +1260,48 @@ If u act good, society will learn and act good too.(reaction)
 
 
 </pre>
+<pre>
+نتیجه از طرح ریزی زودتر به ذهندبیاذ‌
+
+ادم موفق تو‌ایران دیدن یه انتی پترنه! 
+Programmable content in facebook, render post based on user preference ...
+خلافبت بزای حل مشکله، نه بزای به وجود اوردنس 
+مشکل پروژه های گیتاب عدم حل مشکل واقعیست
+صرفا مثل لگو بازی، شوخی شهرگانی بدون scamper 
+
+
+مشکلات مارو مسازن، خودت انتخاشون کن ای مرد قوی
+
+سریع و ارام به کند و خشن
+Record  alless daily qpp!
+خبررسانی :قضاوت با خپدت بر اساس دیاگرام و نمودار
+ادمایی که تو بچگی گربه رو سنگ کیزنن، معلومه که مریضن و حسود. تاب پیشرفت کسی رو ندارن. سیستم کریضی دارن
+
+یک حش در هر لحظع،
+ یادگسری با تغییر
+، تو مشیول‌زندگی‌خودتی
+،راضی باشی از خو ت و توقع نداشته باشی
+فلو، دوستان و هدف والا شادی میاره
+. بیستر ببینی، بیستر میخای
+ناخوداگاه تغییر‌ بدی خودت تغییر میکنی
+زندگی‌رو بپذیر دراما درست نکن
+از ا ما بدت نیاذ، ببین چه سودی دارن
+
+
+בה ב'אי באד...כ'ווב -> 0...כ'ווב
+Just change it to learn it.
+
+....
+If chat gpt bring image as reault of thought alongside text, goigle would die
+....
+Try hard to remeber 
+Try find relared memory
+Try 12  method assign
+Clean mem and remember
+5 Distract and remember
+Simate and switch lange 
+What picture recall with meaning and try to translate
+---
+
+ 
+</pre>
