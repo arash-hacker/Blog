@@ -1294,15 +1294,7 @@ Just change it to learn it.
 ....
 If chat gpt bring image as reault of thought alongside text, goigle would die
 ....
-Try hard to remeber 
-Try find relared memory
-Try 12  method assign
-Clean mem and remember
-5 Distract and remember
-Simate and switch lange 
-find place in langugage context by map: recall image not specific vows and similar.
-find similar and relation between synonym, opps, vows, example.
-What picture recall with meaning and try to translate
+
 ---
 
  
