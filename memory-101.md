@@ -47,4 +47,16 @@ One way remembered more easily
 Modify pic w curr imagination
 
 Self bad(harm/ traum / unpleas) event with many oposite meaning and spend 30 sec deeper analyse.
+
+---------
+Try hard to remeber 
+Try find relared memory
+Try 12  method assign
+Clean mem and remember
+5 Distract and remember
+Simate and switch lange 
+find place in langugage context by map: recall image not specific vows and similar.
+find similar and relation between synonym, opps, vows, example.
+What picture recall with meaning and try to translate
+Same phonotic words and similarity 
 </pre>
