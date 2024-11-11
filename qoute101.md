@@ -1398,3 +1398,72 @@ Bad part about close mind ppl, they think they r open minded and dnt consider my
 
 
 </pre>
+<pre>
+in each language context you need to define space for word:
+. remember word by related memory
+. find opps, synonym, same vows, compound 
+. Learn by current running context engine.📛
+. Organaize memory recall by arranging word to evidence, location, stort in context engine
+. Wheb want to recall word, flashback to related story ...
+. Create story and attacht all word to it by context.
+. to remember they should bind at same time.❗️ ❗️ ❗️ 
+
+
+How u deveopl sw is how u solve problem or debug.
+It only need one cpngress man to change law amd cpnvince him
+
+ You dont expect zombie to eat you, what tgen expect ppl to behave coreectly
+قوی سرسخته و زیره. ضعیف نرم و نازک 
+اگه افکارو کنترل نکنی بیرون هم کنترل نمبسه.بیرون تجسمی از طرز فکر است 
+
+3 probability in 2 piece / complete one row by probablity of two / filling probabilty by pigeon rule
+
+There is no good or bad console, it deps how u can enjoy gaming w flex mindset
+Same freq ppl fo same job and sympathy.walking as row 
+اونی که زود یادش میره، اکثر چیزا روانش تاثیر میزارن
+
+all neoron are same: 
+       stamina-strengh-speed only one level upper => ranking
+       you only need larger,:THICK faster:PARALELL,long-term:MORE cpu to succeed!!  
+     Stamina: more N      Faster: parallel N      Strength: more N
+     when u use multi N tgtr. grow tgtr.
+     Strench is stamina: you can handle 600k but only once. not 10 sets.
+    
+first observe then act. never act on first observation. user their exp history ins.
+
+
+
+ Nothing existing is impossible
+ Two contradict cant stay at same time
+Blame comes only from others
+We should write test, then from it code generation.
+
+Learning wo practice is non sense, 13 yrs of english and they cany speak.so speqk and find usefullword. Not remebering bunch of shit even 500 words.
+and maybe word has different conjuction in real. 
+📛📛📛Learn in sentense, speak the sentense.📛📛📛
+You don't learn word, number, peom as list of thing. you creating story and make sense to them as experience ❗️❗️❗️❗️❗️ 
+Donde tu busce la palabta, cerebro hace un vacio lugar.
+Remember u learn context, not word, cause we have many words for 'save'
+Leer libros y hace oracion(diff ctzlx diff palabras)🌹
+*
+**
+*/**
+🔥
+U learn when u need it nit by reafinb it.
+Logic is rule of natural in earth. It may differ in other spaces ...
+
+Computer philosophy
+
+Reading, thinking talking wo output is just breathing
+Philosophy is science of experience as moral, aestic, logic, metaphisic
+Science is philosophy of experience or categorizing exp
+Logoc is one subject can be two opposit at same time
+Every bad decision comes from emotion and not testingg twice
+تجربه لدون تفکر ، وقت گررانیس
+تفکر بدون تجربه، فرض اختمالا غلطیه
+Is socity ethic ? No روزگار بی مهر و وفا نه باوفا و باحال
+they talk about judge but play music in bg. how to judge when you are biased by song.
+fast and strong is better than weak and slow. (always, but without pressure to become)
+.....
+Todos compartimento esta logical, sociak y emotiknal
+</pre>
