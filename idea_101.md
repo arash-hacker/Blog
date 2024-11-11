@@ -1299,3 +1299,28 @@ If chat gpt bring image as reault of thought alongside text, goigle would die
 
  
 </pre>
+<pre>
+Mini vacation
+Memory is like distorted pucture as graph per edge 
+philosopher r idiot 🖕🖕🖕
+movie: civilization as prophet in village
+always compete and feedback yourself
+Goo goo gaa gaa similarity for verb reminder📛
+Word comes from mind eye ditectly if u find 📛
+IDEA: convert test case to code and gen model route. ...
+تو همان زبانی که می‌اندیشی مابقی تو استخوان و ریشه ای
+سند کالیگرافی
+
+
+Idea: 1+1=3 and there is no even number 
+Random rule of phisics and time.
+Sand clock of rand.
+Idea: soduko (112233445) only one 5 and two other number
+Science movie <====> thriller depends which one you saw enough at child
+Idea: some faces are repeatable, khoros, neighbor, gym idiot thry have eagle nose
+
+Movie: ManWu: human beyond man and attractive for womans. Respect for wman and man go to extinct.
+Eye intelligence is important as ear intelkigencr  
+
+idea: books b4 movies
+</pre>
