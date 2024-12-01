@@ -1324,3 +1324,58 @@ Eye intelligence is important as ear intelkigencr
 
 idea: books b4 movies
 </pre>
+<pre>
+ make movie based on scenario you have GPT
+Movie: mind as software in other brain hardware
+movie: country of all familty together
+idea: 2d word to geomtry line demonstration. <>| family or name words to remember power of learning.  <>| also wrintg system to similar words. reminder
+Movie: time go backward and u wake up at yesterday.
+---------------
+chess: square ← →  square calculation.🔢
+THINK LIKE ⎈   
+smart people: have graph session of thinking. have pre-build graph of thought. like horse from L, then 8 octo, then crane . .-<♢♦︎🟩✅🧊
+THIS IS PATH OF RECALLING WHICH MAKE IT STRONG ❗️ ❗️ ❗️ 
+Makinv error prv space for probability and try and connection
+---------------
+happy language: reminder of word from happy words encargar, cargar, cargo, ...
+joke: what make ppl beleive in consp theo? lack of info and sheer of confidency. r u sure? yes.
+....
+Memory as fading gradient sand which disappear after time or hardened innu put water(use case, sampling, grouping(meaning, pronounce), opposite, synomon, vows, pun, recent app, intense or particular)
+
+Art of shadowing  for memory: worker obrero uber 
+U remeber uber and ubrero have same vow
+But u cant connect to worker because its shafowed.
+
+Every word has human face, we dnt remeber them but have intuition and memeory about ot 😉
+
+RCUREDA JUNTO CTX EN UNA MOMENTO 🤌
+
+LIGADO SIGNIFICADO Y REVOLVER MEMORIA JUNTO 👉👈
+
+SIMULATE USE CASE OF WORD AND PUT YOURSELFIN. 3x CTX🖖
+
+SYN. OPP. VOW. EMPTHYMOL. CTX TGTR.
+MOTHER THOUNG SIM VOW. 12 MTHD 🖕
+-----
+by practice and exactly recalling in situation (and mistakely retrieve),  can remember easily.
+
+Bundle learning....
+
+....
+idea: Draw tree of confusing work flow that trapped u to wrong answer 
+idea: join gmeet when there are 3 atleast
+idea: new language like espranto with less verbs and just opps  of good words. 
+
+Cleqn smart faster is better than any thing
+idea: multimedia vscode comment
+Idea: book art of distraction
+Idea: clone to start kll ebemy
+idea: movie: two side movie with optimissim in dessert and pessimist in otopia
+idea: adjustable room wall
+idea: dark psychology100 
+idea: rule of nature, whatever doesn't solve your problem is not sellable , (people have idea that they may solve problem but in action no one wants it.)
+idea: skeleton of langugage, provide minimal language to proceed wihtout senses only by logic
+
+
+
+</pre>
