@@ -1467,3 +1467,117 @@ fast and strong is better than weak and slow. (always, but without pressure to b
 .....
 Todos compartimento esta logical, sociak y emotiknal
 </pre>
+<pre>
+ 
+پرینس : ماکیاولی
+بدن سالم در عقل سالمه، نه برعکس
+با مسالمت و خواهش و تمنا هیچ چیز درست نمیشه مگر فکر قوه قهریه فراهم شود. فقط زور و احبار
+هر کس فک کند به وسیله صدقا و انعام٬ صدمات گذشته بهبود میابد اشتباه کرده.
+با اسلحه امتحان نشده نمیتوان به جنگ دشمن رفت٬ حتی اگر همه تعریف کنند.
+مردم ساده و ناسپاس و زودباور و فقط فکر منافع خودند.
+بشر ناسپاس و غذاrrر و متلون است . احتراز از خطر میکند و طماع به منافع خود است. و مادامی که به او سود رسد وفادار است 
+خیانت‌کار، فریب‌کار یا بی‌وفا دمدمی‌مزاج، بی‌ثبات یا متغیر است.
+باید با حالت و قیافه  برای گول زدن و ریاکاری اماده بود
+رحم و درست قولی و شهامت و مهربانی و دیانت
+از نظر شاه به جای مردم و مردم به جای شاه دیدن 
+...
+what is result of expericen without getting knowdlege/wisdom(usefull in future).  and not information.
+
+idea: As we know an call persons, ctx has face to us, we detect them by first, second,... Pictures، similarity,... from diff angles 📛📛📛
+As u detect bull by his horn, u detect word by bold features
+Sentense must be full not half size 📛🔥📛
+
+idea: every word is entity you remember or connect ❗️ ❗️ ❗️  
+you connect pre existing map to your new world/word/wod/wo/w ❗️ ❗️ ❗️
+you remember faces like words. some time foggy / half correct/ or either mistaken to other part
+
+→ word→ spell → vow-→ pronounce
+  →  image → memorys(images) → similar → (prononce, vow, spell)→  exact word
+(Done)
+image2word is very helpfull 
+
+Final truth: longer word in sentense can improve memory for recording word cause human can store 5 spot per memory.📛📛📛
+
+50% your belief is wrong
+Not all ur anxity kills u
+All u think useless actually is yr true power and plans work
+why angry: can't change the 
+-----
+sometime jobs don't need motivation or reason, they can be done as subconsions marios=soiram hosein.
+
+
+Rational cant feel upsetv
+Fails come in restricted and limited environments.
+
+انسان کامل: بدون احساسات از گذشته و حال٬ در حال بررسی منطقی
+همانطور که یک قدم لازمه تا لغزش کنی٬ یک قدم لازمه که پایبند به تعهد و هوس ها و قول ها باشی
+رعایت و خودداری از هربار هوس لازمه پیشرفت رژیم یا ادامشه
+you progress when you don't have feeling about task ❗️ 
+
+Aggression won’t make you win, calmness can.j
+بزرگترین قدرت، مرور خاطرات گذشته بدون تاثیر پذیریست بر عواطف
+journey starts when you go out of your home not when you arrive at destination
+همه ما‌ذاتا گناهکاریم
+از کمبود لطف به پدر و مادر
+یا گذشتن از کار برای خانواده
+ذر جامعه ایدعال اصلا نباید کار کرد و‌همش در کنار‌خانواده باید بود
+
+به خاطر کار اشتباهمون اینجا هستیم، نه بخاطر کار درستمون
+
+مشکل احمق ها، ندانستن و انجلم کار اشتب است.نه اینکه اگاهانه کار اشتباه کنند.
+can't blame experts if they don't have expertism in one specific rare event: even experts have flaws when they face black swan and face extraordinary 
+scarce event.
+---
+war is distract and weakening
+
+*****************
+ dark psychology: force ppl to do/feel a job/sense for you by manipulation
+3p in dark phsyco to destroy: personality / proud/ parise
+lie / distract/ overwhelm/  framing (false or unadjusted(exager) info)
+trade off killer.
+fact checking/ critical thinking/ statistic and diagram
+**inject:**
+fear 
+blame(guilt)
+dependence
+shame
+doubt
+rejection(ignorant)
+compare(not sufficent)
+lack of confidence
+  
+**for trust  reward and help **
+promise
+trust
+kind
+sympathy/empathy
+
+** delegate **
+pitty play (victum)
+scape goat
+projection
+
+** manipulate **
+lie / baiting
+smile
+distract
+trangulation:(affirm, compare, distract, fake data )
+framing + : fav mem /.  frame - : fear...
+anchoring: door in face (پررو) , foot in door (جونه)
+double bind (saw)
+down play
+*****************
+
+
+solution:
+past-now-future
+ fix framing : statistic 
+ fact checking
+correct ctx & effective conditions
+no emotion
+---
+if logic cant fix it, emotional is useless too so why so angry//serious.///
+
+
+
+</pre>
