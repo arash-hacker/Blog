@@ -1375,7 +1375,75 @@ idea: adjustable room wall
 idea: dark psychology100 
 idea: rule of nature, whatever doesn't solve your problem is not sellable , (people have idea that they may solve problem but in action no one wants it.)
 idea: skeleton of langugage, provide minimal language to proceed wihtout senses only by logic
+</pre>
+<pre>
+What if i tell u
+Why cant u have 5 names at same time? Arash, leonardo, hacker, midos
+idea^2: build framework not projects;let money work for you  
+is: eng-> fa and fa-> seperate way of neurons?
+
+imagine every thing you hear is lie, how they trick you
+Rem: 346789 x 11-99 ::::540::::📛📛📛🌹🌹🌹
+idea: worn movie with vague shape so men can't fall in love and shape of wife
+sexify
+Ppl instead if thinking how easy problem is, think about how big is
+movie: what if there was no Internet
+idea: real anime like reaction (yelling in real life but like anime style) 
+How suspect to someone in scenario? Jakal🖖
+idea: Percentage of ppl and how controlabl is: SF +NF =80%
+Idea: couple amker vdeo
+Idea: dream 2 mood 2 dream
+idea: Light accelerator for passing data through  galaxy
+Idea: bycyle as joystick baj controller
+idea:Game for baj in gyms for fun
+idea:Run real time in berlin
+Idea: how to watch movie like doing task not watchet....honor of king...
+. I am responsible,...Predicting..what happen now
+. Finql scene is not sams as begining.
+. Tianjong is collapsijg by neighbour. Revel
+. Show predicting future and show off
+Mama face as he predict future
+All faces r shown . Oldman is mad one
+You chhose black is trick to correvt his words
+
+Idea: board game like chess baduk wieci arimaa hex checker 9men othello xiqnci hive shogi santornini tak .....
+
+Idea: lean over sea and watch newyork ppl in buildinf what they do
+Idea: Platform as service ipad
+With all possibility of board games : afjustable chess board
+
+Algorithmi ke dota kilid baz kone ghoflo mesle shahklid and farii
+Movie qbout future makers by final fantasy character by hammer.
+خود خواه تفاوت با باکلاس
+How directors force viewer to think.. they are master of consious bringing with common feel applier
+
+Directors as fox and cat in pinokiu to decievr childs.
+What is new question verb like 
+who how where when what which whose why. Complexity of qudstion mark, makes level of language.
+
+Why(what reasons) -> how(what happens)->  what                       input output
+which(what subject) -> Who(what person) -> whom    subject object
+When (what time) ->  woh (when+where)-> Where(what location)                  place time
+Wense ->  whonse what senses 
+Ohw-> owh -> p
 
 
+Movie: stone ages ppl with 160iq. How smart communicate and build socioty.
 
+به کلمات و معانی توجه میکنن. Have should might must و چه باری داره بر ضمیر ناخواگاه میزاره. پولدارای مغزی تا مغزت پولدار نباشه چ، پSGولدار نمیشی
+---
+Surface thinker and TST tinkers.
+Thought like thunder brain storming.....
+Nuts like brapin to grow plants....
+painting by thinking from an to final design...
+How thry think about problem? One node, multi node, 2d ,3d 
+Think big, not in cloud , but in items to load TST
+
+We stop thinking about alternative after 3 problem or failure to approve.
+How many ctx you load in mem to think about problem
+fazct checking or accepting as they say
+how they choose friend either investing or just use-in-time
+---
+استخراجی، استنتاجی، استقرایی، استنباطی ، القایی و برهان خلف
+ 
 </pre>
