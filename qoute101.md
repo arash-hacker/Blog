@@ -1581,3 +1581,162 @@ if logic cant fix it, emotional is useless too so why so angry//serious.///
 
 
 </pre>
+<pre>
+
+
+بعد از یه مدت میفهمی سرمیاهداصلیت دوستات و اشناهات و کارمندات بودن که روشون حساب باز کردی  نه مال و منال
+اگه تجربه هاتو مرور نکنی یا ننویسی دوباره تکرارش میکنی، اینبار تلختر چون دوبار گزیده شدی
+
+word and exp that you learned, if you don't use it as application will be stored as island of dipelated memory and you have no address to use it. ex: gusto: 
+Mind moves body toward what it think
+Mind believe whats is repeated for it
+Mind cant get negative command, always direct meaning
+
+dont wait for right time. it will may never come. just build with current setup if it's fine: jquery / reactjs
+If u dnt have parkinson law, you cant measure tim
+Big diff btw poor and rich is ability to think they can
+---
+select job by : salary, passion, easiness, growth. have multiple interest.
+the good philosopher is never sure about something
+
+هیچ میوه ای نیست که هسته‌ش بیرون باشه٫ و هیچ تجربه ای معنیش سطحی دریافت نمیشه . تعقل لازcمه
+Wise is everyone is yr teacher and u dnt know anyside yet
+
+
+تمام مشکلات بشر یا از احساسات است یا از عدم فریم مناسب
+many clean code rules are deprecated now by using intelligent editor: 50 line of code ...
+by caring about others work you reach to head of eng / cto always
+every system has testable, replacable component and has starting point.
+system is always closed env.
+
+systematic:(DT)
+- critical (dialectical)
+- creative 
+- analytic
+- lateral
+
+intuition(TD):
+ -emergent
+-narrative
+if you have only one solution or your option is not yourself generated, you probably are wrong about it. 
+---
+I am not god, but I klled many of them. 
+
+Flu dnt atrack, your body is responsible to it
+Event dnt effect u، ur mentality is responding to it  And u see it.
+
+Diagram: language of system thinking
+Output: is subset of system componets 0,1,2...n=2^n
+Deduce system: watch how sys behave ocr time.
+Porpuse are deduce from behavior not stated declared goals🫸🌹
+Electricy comes from magnetic fiel always
+Energy is source and input
+Graph tree and graph diagram r same because they are over time scale. But gr tree r constant over time.
+
+
+Always use time scale 📛📛📛
+Jay forrester factor 3 : estimate x 3
+Bounded rationality
+
+How stop drugs...? Sys
+خوشحالی از پیشرفت میاد، نه از مقصد پس به مسیر اعتماد کن
+فکر فکر میاره، پول لپول میاره ضعق ضعف اضافی ووو 
+pattern_thinker, analytic_thinker, intiutive
+futuristic, presenter, paster
+
+Right goals not just number
+No rule hacks just follow it
+Solve root cause not by patch
+No accumulated.exponential winning
+Maintain standard not inforced decline.
+Dnt over use shared resource
+Policy resistant
+
+
+Qoute: 160iq ppl has more solutions and open questions than any normal human, like chess hikaru w many open position and design. They have more final picture at same time ×7 time more than you can. They can connect multiple past to multiple current one. Can image whole process at once without fading. Not just move by move thus by all posibilty . you can find your brqin when it fails to follow. (Capacity of brain). They can focus on multiple thing, multiple times, decoration, setup at same time. And simulate multiple input .
+This is how they get mad, many open question 9 by 9 coming to them to sokve it.they now they are processing all together simultane.(Chess piece diagonal, all together possible, remember all opponent next possible move too like laser trace). When they speaking thry think about future moves and ctx of conversation. Every things as time table w why what where
+When think, they can connect multiple part in head, as connecting.... Pig, hun, sow, boar...boring...vilian arrogant.....
+This is how they multiply thinking
+All story as whole timeline in one imagination
+p have all timeline in one picture. Like gray status lenghiiish.
+Bcs u can have all like of move, yr brain can imagine intersection btw themm. And can move on surface easy than line. And 3d myby
+See mqny possibility
+Because u cant imagine 0-100, you do0-70.
+Its not about calcing moves, its seeing moves! 
+Because you hating, you stop thinking::: human cant have two work at same time 📛📛📛
+Interpolate extrapolate now w past future
+System as whole
+Timeline of action
+N as statue of timeline on top
+They are not in zone, they are zone, flow, literally.
+Flow mode in watching and storytelling evidence.
+Same w readong. Same as flow in game like sega.
+Flow in everything.
+watch , go in it, come back, recall than, put on timelinestatue and see it how to solve or wonder
+
+Our brain is just engine to calculate: think it as steam engine and wants to calculate ctx or story and it will cotniue to imagination. Like vacummer wants to calculatr and clean areas of brain for dirty unsolved problem to solve and clean it.
+Thats when vacu is exploitjng or getting stuck like nasakh , it should be clean and smooth and relllax while removing dirts . That is much diff of hertz btw ppl and socity. As poor are aggitated hertz pump. 
+
+Dr hertz and heart in de and pumping blood pressure 
+
+There are dirt as problem, we should agree there are some dirty entity in world and accept it as sociality.  Every society is a clan depends who they treat .
+
+When you accidently remeber a solution to your dillema or past or innovation happines comes to you. Thats because of olunconsice brwin solved already the problem.
+
+Rhink like tantikle to grasp And simulate multi ctx thinking  in your brain like 5 trains in same like of diagram.
+How attach stories e.x iman h. And how it behaved or changed over time his chance. 
+تایپای ذهنی مختلف: یکی محله دوستن، یکی فاز و وایب
+ How his mind behave, how he.she behaved
+Instead of listening , connect to it and build timelinestatsus TST. Mind is like spectre or ghost which go around 3d problems to solve. Much similar faster bigger durable.
+Thinking video of their live and interpret all ppl in scene at same time to calculatr outcome feeling and report about room. Like insideout 2 panel over it. And controll as machine.  Tbry think naturaly neutral as machine without emotion.
+
+Movies are for ppl who ask why this happen, what did happend interpolate itrpl and extrapolate future to create TST. and put themself as character. Main problem is connect their souls in the ctx and make them think for you and collect her souls.
+It s not that, i am ariana grande fan, I am ariana grand myself. Think lile him. And i face his problem too w my desired attitide in her.
+Mads have highly active brain to ask
+
+
+Directors are Deciever of emotion for curious viewers to ask qs. 5w2h 
+
+y🌹📛ouncan increase tenticle by improve per time. Do it next time ctx+1 for improve and mind building. And exinterpolate incident and convs and self image📛🌹
+
+Think deep deep think with full images at head.thats how thet deeply think. Like train every day
+Thinking about other minds as object and how it behaves.
+
+If your mind calculating is slow it because younuse it slow. Train like pro and use it perfectly.
+
+Surface thinker and TSTv5  Tinkers
+Smart language: you put problems in chart and think as interpret of languages. Iq160 mode
+
+How younthink is your language of spraking.
+Some languages have sounds but all has act of brain to think and process data.
+
+Principal: how big picture he think about stuff.
+How big their brain is to handle situation and how small os yours that you think pointy,not linear not plane not cube.
+
+Build TST in your thinking as train of blindfold thinking.
+Think correct with all ctx, dnt think easy bcs u laxy. Think correct and speed up. 
+You train and learn it bad as child and growed up
+THINK FULL NOT LAZY AND EASY
+rhis is how von newmann thinks even learning langugaes
+Thinking is exintrepolating about topic with ecident as TST multi tentacle 🫸🌹📛🌹
+
+
+
+
+100 % گفتن ادما‌و اکثرا کفتن در‌کلام نشون سطح برخورد اکادمیک و بازاریه. از کلامش میفهمن عجیبه. حتی مطلب ادبیه انگلیسی، حواسشونو پذت مینه و نمیفهمن.
+زبان و ادبیات پولداری رو یادگرفتنه که بتونی تو جمعشون مثل خودشون صحبت کنی و دغدغشونو بفهمی. زبان کار و محل کار نوعی ارتباط داره. ادبیات پولدار و مکانبک و معلم و ...زبان خارجی‌است که باید یاد گرفت و درست ادا کرد با گرامر به جا...وگرنه اینتگربت نشدی با جامعه اونا
+چون فقیر از سیر مسابقه پیشرفت و یادگیری عقبه ازش منزجرن
+
+
+
+Dnt start thinking with one ctx, load all , exinpo all and now think. You brain as far as can image itself can run simultane like conspiracy theories
+
+
+We like define system as lack of our fav solution instead of observe an learn behaviour of sys
+
+1st person thinking is emptional, 3rd thijking is logical: see from other's aspect/view
+
+
+
+
+</pre>
