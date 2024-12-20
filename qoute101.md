@@ -1735,8 +1735,97 @@ Dnt start thinking with one ctx, load all , exinpo all and now think. You brain 
 We like define system as lack of our fav solution instead of observe an learn behaviour of sys
 
 1st person thinking is emptional, 3rd thijking is logical: see from other's aspect/view
+</pre>
+
+<pre>
+ most of conspiracies are from jumping to conclusion sooner by less evidences.
+
+all defeats comes by shallow TST and every wins was by deep TST
+pain can be tolerant but we anticipate that this pain cause this catastrophy... and with small burden we think we doomed
+What if: we use 100% breath , 100% water , 100% of food digested, 100% of ctx of problem. ....
+99% of ppl think  1TST or 0TST and purpose of meditaion is free dirts to run at same 0tst and come back fresh to XTST. 
+Mind like octopus w thirst to calculate, depends hoe you restrict it.
+Think w exintrapolate per point tst model 
+How poor is so low level tst 0tst, 1tst
+-1tst toggling conn/dis
+برای همنی معنی سیستماتیک عجیب است
+idea: exintrapolate, exin , thinktrapolate.
+idea: exin like 10tst🔥🔥🔥🔥
+
+How they think, how they culture think tst like that🔥🔥🔥🔥
+
+1tst  mayve faster but wronger than 4tst
+
+Idea::: perla  Happiness from tst thinking.🔥🔥🔥🔥
+
+Conspiracies connect fact far from different model  ut close like albert einstein 3d surface bent over same blackhole🔥🔥🔥🔥
+
+When really listenining , start cresting new tst, along with older tst 🔥🔥🔥🔥
+
+How gov abuse ppl to eat fast, think less in comercial to control ppl.🔥🔥🔥🔥
+
+Respect mary(jane) with use its high level benefit🔥🔥🔥🔥
+
+taste of thinking....🔥🔥🔥🔥
+for 2tst it soon reack conclusion by including 4 items 🔥🔥🔥🔥
+
+playing games with child, hideseek, memo, attention, musclemove, ...anything that effect simulating/modeling tst in brain, faster, bigger, durable,parallel, gang of parralel 🔥🔥🔥🔥
+
+How giants tech brains work 3rd tst 🔥🔥🔥🔥
+Paranioa attract dtrange memories tgtr and you consip theo it 🔥🔥🔥🔥
+
+
+Every content,show, music you take is food for brain 🔥🔥🔥🫷
+First emotion, then language,🔥🔥📛📛
 
 
 
+Fast and small , deep n^2 fox.whale.
+This is how john von newmann thibk. Imagine tst thinkers.
+Ilumenati , framasonas assumr thrm as high tst thinker.
+
+🔥🔥If it can reach to conclusion, 5tst, as 6 th element removes weakest one.
+Games r relif for mind
+
+هیچ‌وقت تو خونه فقیرا بتهون پلب نمبشه
+حتب تو خونه پوادار، ببنوابان تراژدی
+
+
+سرمایه مثل هوا ربخته، ولی مردم کمی میتونن از هوا استفاده کنند بهینه.
+Auntie and nosy, how connect things and bring it up...i thoight you said ....📛📛
+
+The meaning of life: think bigger faster durable: befried. 
+
+نوعی از فقر‌هست که‌ما تجربش نکردبم
+فکر کردن مثل قعله ساختنه، و زمان صرف میشه براش و این تو رابطه حالت شهر سازی میرسه.
+قلعه به قلعه فکر کردن یا شهر‌به شهر 
+مسافرت میرن. حس و صحنه رو ذخیره میکنن که دوباره یادی کنن.
+Idea: movie about mind castle memory thechnik but with emperor.
+
+We like define system as lack of our fav solution instead of observe an learn behaviour of sys
+
+به پدر و مادرت چه نصیحتی میکردی در دهه هفتاد؟
+How u thought aa child , is you now
+You think with your third eye
+بچه بودم سفت نفاشی میکشبدم زود حل کن مشکلو .گرمبه. پیانو الکتربک. کارتونا. ازمایشگر و لذت بردن
+اکه هدفی نباسه حرکتی هم نیس
+Any hiphop in rich house or bethowen in gettow
+
+
+Solution attacher, to problem, actor
+Attacher fast. Loose and strong
+Non tst builder, 
+2tst 
+Interface actor. Act as someone.
+Interpolator
+Extrapolator
+1st fps or 3ps
+خوشبین بدبین
+حسی منطقی
+فرمانبردار
+ 3rd think plans slow Exin taker pessimist, 1st reactorFlow quick taker/giver optimist.......pleasure giver.taker, PatieTime.slownt rushyquick. 
+Thinker feeler.senser
+Deducer , experiencer
+By intuition actors
 
 </pre>
