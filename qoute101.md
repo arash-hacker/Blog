@@ -1838,5 +1838,13 @@ Extrapolator
 Thinker feeler.senser
 Deducer , experiencer
 By intuition actors
+Detail fullpicture
+Fast slow
+Octopus speedi furs/shaved
+ ---
+ feeling...thinker
+ slow detail...fast overall
+ past now future
+ 0tst--10tst
 
 </pre>
