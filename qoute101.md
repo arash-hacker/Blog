@@ -14,7 +14,18 @@ Dont be hash(just learn wo connect), be graph
 There is no master(---Think instead of master--) only developed graphs  
 Winner is who learn faster(developed more nodes,Master has big (ssd)memory ,load all in (cache)Ram and calc 
 Newton, euler, gauss they just read and contributed to papers 
- 
+ -----
+ 1- paradox of effort.
+2- counter intuitive notion.
+3- pitfall of overexertion(don't overexert to fill stress just calm)
+4- relax readiness (when stress you can't do 100 best)
+5- efficency of action
+6- finding middle path - go back and forth
+7- embracing nothingness - release concern
+
+
+
+----
 Prepare arrays of answers 
 side of problem   
 other answers  
