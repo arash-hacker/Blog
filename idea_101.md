@@ -1550,7 +1550,9 @@ empthy or feeling memory ⚡️⚡️⚡️⚡️
 
 
 </pre>
-<pre></pre>
+<pre>
+ every moves in chess create at leat one oppurtunites and one vulnebarity
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
