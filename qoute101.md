@@ -1848,3 +1848,147 @@ Octopus speedi furs/shaved
  0tst--10tst
 
 </pre>
+<pre>
+
+Optimuzer fullpicture
+مردم دنه شصت زود باور و کم تیستی بودن. 
+کمترین شایعه رواج داشت، مردم تحت تاثیر اخبار و بدون قدرت تحلیل
+تبلیغا از ما بهترون بود بیمه بستنی شمال اتاری
+، قشر فرهنگی مثلا سواد داشت و مطلع، 
+
+Devide problem into smaller managable structure?? If we split problem we have more sub problem+ connections
+
+..... How think
+Know how system works fully(see in breaking by dnt hide them)
+Provide solution based on outcom of subsystem
+Trade off best of solution by ctx and test it.
+Get feedback and reflectic result insights
+ctx, sys, fdbk::::  ctsysbk
+.....
+
+0. All problems are either lack of ctx or lack of knowing how system works an d not getting feedback or evaluate from past so you repeat mistake again and again. 
+
+RefleTacTigic-CriSys-ConvDive-ExIntrapolate MinMax(exp) -:::-:::- fdbk, ctx,sysrel
+
+you should generate system in your daily work.
+reflex now, relfec past, reflect future
+Assess to know how much you 
+Know and do you have all informations.
+Accuracy of reflective past. How you solve it now. 
+Critical to check if it's logical as seems
+
+2. Critical Thinking.  fact check system
+3. Creative Thinking outward/inward
+4. Analytical Thinking.      sysrel
+5. Logical Thinking          sysrel
+6. Emotional Thinking.     -
+7. Intuitive Thinking.        minmax sysrel
+8. Reflective Thinking *.  fdbk    
+9. Strategic Thinking.       in/out/mid/ sysrel
+10. Lateral Thinking.   out sysrel
+11. Systematic Thinking.    sysrel
+12. Abstract Thinking.   minimised sysrel
+13. Convergent Thinking. conv 
+14. Divergent Thinking dive
+15. Deductive Thinking 
+16. Inductive Thinking
+17. contradiction Thinking
+18. Pragmatic Thinking min/max thinking.
+19. Metacognition
+20. Associative Thinking
+21. Mindful Thinking
+22. Conceptual Thinking
+23. Scientific Thinking
+24. Philosophical Thinking
+25. Holistic Thinking
+26. Ethical Thinking
+27. Narrative Thinking
+28. Algorithmic Thinking
+29. Parallel Thinking
+30. Binary Thinking
+31. Constructive Thinking
+32. Conscious Thinking
+33. Unconscious Thinking      reflect now.
+34. Symbolic Thinking
+35. Dialectical Thinking
+36. Linear Thinking
+37. Nonlinear Thinking *
+38. Heuristic Thinking
+39. Abstract-Logical Thinking
+40. Prospective Thinking *.    outward fdbk
+41. Retrospective Thinking *.  inward fdbk
+42. Contextual Thinking
+43. Global Thinking
+44. Detail-Oriented Thinking
+45. Linear-Goal-Oriented Thinking
+46. Collaborative Thinking
+47. Individualistic Thinking
+48. Optimistic Thinking
+49. Pessimistic Thinking
+50. Resilient Thinking
+51. Innovative Thinking
+52. Experimental Thinking
+.....
+which one is probablity thinking
+someone how play with current dice, can't predict future
+Possibilty, feelling thinking
+Tst thinking, moral sequenece thinking
+Parallel thinking-concurrent thinking
+Unconsious thinking-consious thinking
+.....
+Pretrnting something doesnt exist if its hard to quantify, leads to faulty model 🔥📛🔥
+
+Humans are engineer architect of their future.but better first learn syatem then plan it
+، 
+life is a game not task to finish
+ادم با مقایسه فرقا رو میفهمه وگرنه به همون عادت میکنه
+دو مغز عاطفی فک کردن و منطقی و بی روح فک کردن.
+
+ادم دو ذهن منطقی و احساسی داره.
+با فیدبک و بدون فیدبک موتور
+تاپ تو دان/ دان تو تاپ
+inside filler or outside filler.
+تفکر و ویدیو و کتاب و بازی و گفتگو و اخبارو رددیت.
+سریع و اهسته
+
+معتاد به زندگی کردن نه اسیر بازی شدن
+
+</pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
