@@ -1447,7 +1447,49 @@ how they choose friend either investing or just use-in-time
 استخراجی، استنتاجی، استقرایی، استنباطی ، القایی و برهان خلف
  
 </pre>
-<pre></pre>
+<pre>
+ tst thinker: feel deep dive into it and as first person view to enable your memory and feeling
+
+Movie:What if real normal human had more mdma lsd in their brain, and we are dumper version of that?.
+Actor tst as interface shape shifter 
+Our brain controlled by our childhood machine, down over deep amd controls cog to act. It need to grow up and shape our personalities
+
+movie: God with 10000 yo speak like baby child sounds
+
+I was dumb before as 0.5tst. 
+We dont measure how performwnt is our brain ? Today or back...
+Dnt watch movie so much if yr actor intercace.
+حضور گدا و اقتصاد محله 
+شرایط محله نسبت بع افریقا
+
+اموزش زبان و کامپیوتر و المانی
+
+
+.....
+Redesgin of bank problem
+Think like tst as 90s source and resource.
+Invent new jobs as tst in usa: car, building,...
+Think as sky scrapper thinker. (They think outside, and child think inside)
+All tst are always successful, if they cover more, under cover or limitated always false
+Problem os 90s as givernment.
+
+Think like you back in days, what options do u have to ptopose?
+
+Poors can grow tst, and rich cant fo parrallel.
+Howvyou solve unrecognised problem, like 60 iran.
+چی تو ذهن دهه شصتی مبگذشت،؟
+
+فیلم یه بازیه، برلی همین باید اخرش برنده شی که خوشحال بشی از فیلم. سبستم سینکبنگ
+
+Not systematic, tactical, stratigic, analytical or logical.
+Cant predict future and rely only on hope, hate or feeling.
+They are not good game player and their cognitive capacity is low and have lack of contexts about systems.
+
+Tutoring  lessons...🔥🔥🔥🔥
+Chess challenge 🔥🔥🔥🔥
+Guessing = losing 🔥🔥🔥
+crackle sound of glass in water
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
