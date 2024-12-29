@@ -1590,7 +1590,94 @@ Break routine, to new tst places..new idea conferences, workshopes, challenge cu
 
 What mbti is how they solve problem and how tgey live later
 </pre>
-<pre></pre>
+<pre>
+ Fact checker addons for news
+Financial consultant
+Never ever think you can do it alone, ask for help, meet their consultant, dry run first.
+How find poor frnds and how other? Where they are usually? If u have poor friends, you r poor.
+
+
+
+
+
+Blind fold rubuic
+blindfold painting drawing
+
+Tst octo as compact spring or dna  🪨
+
+Observe nature and interpreate, spead readingg
+Journaling for compress spring, table trnnis,running, lang, mindfull, yoga, tai chi,instrument 💎
+
+Order of quality: 📛🪨⚡🔥🥉🥈🥇💎
+
+
+Minimalism is bad for tst.
+Ins of inc tst, dec it by less decor, big stuff. Make space , repetetive cloth.
+
+Example of 160iq solve for 150iq questions or 90s
+Our thinking and problem template as dot, plane , 3d,..💎
+
+Padel sport 💎
+Sporti pant w device connwcted to it and do acrobatic form
+
+سازندگی کار‌چپ، استفاده کار‌راست.
+ورزش های مغزی. مخچه بالانس و طناب بازی تی‌اس‌تی بالاتر در اجرای بازی.  دیداری نقاشی. سازنده با پلن بالاتر و نقالی. سه بعدی و مکانی....؟.معمار.شکار. جاگلینگر....قضاوتی چیستان شطرنج تخته نرد. و طراحی چیستان.!!! حرکتی المپیک.دومیدانی.انفرادی پس دو نیم کره‌ان .. شنیداری بتهوون موتزارت و کامپوزر. غیرکلمای نمایشنامه تاتر و نویسنده.  احساسات. شعر و شاعری و حافظه بازی.
+سازندن همبسه ۳ tst بالاتر از محصول است.
+رابطه خپش خیالی و اینان
+دیده رو خاطره کن قضاوت کن‌
+
+طراحی چیستان چه مراحلی و ابسترکتی تو ذهن ذارد ؟ 
+
+Movie: 3 iteration movie 3 plot same scene , repeat...ocean , sperm, chrocodile, dragon,
+
+...
+Brain of hunter, attention, focus, more planed before, less motor skill involved.
+
+Day dreaming is almost fps, you thing/dream as yourself to next not objective view 💎🥇 because 1pv is always for resting and dreaming.
+
+Infinity is accelartion to unlimit...even faster,slower
+
+سوژه ابژه و نگاه اول و سوم شخص و نیمکره های مغز
+
+Design building testing 
+Iq is indeed abstract quantity: aq
+Theory is wrong if observation and practical is wtong...should specify epmirical number as tried next to formula.
+Wter boil in 100 (1000k)
+Short problem or amuzong is bad for octo tst. Make it lazy
+
+
+Game engine و باریهای جدید
+شروع فعالیت های  در المان، freelance, game,...consult, linkedin...brand
+We as rich, think in high abstract and can change it...
+
+Difficulty of nsa director their duty
+Education department 
+Economic
+Politic 
+
+Babylon brad pitt... Emo vs fact .abstract manner
+Movie: wait thats not my concious that i am talking to.
+
+
+
+گفتگو لا اکتو ودرون
+Hiw professiknal architects see designs 💎
+How mqth teacher solve problems
+Hoe photgraphers asses masterpiece ? What is grologies jobs? 
+How color plot git tgtr
+What real problem of ceos look like
+Thibk like .... 💎🥇
+اگه ادبباتی بوپبم‌چطور درامدزایی میکردی
+اگه ریاضی بودیم چطور؟
+شیمی، فیزیک ...عمران برق 
+قیکت ارسال وبنج‌له المان.
+
+
+
+
+
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
