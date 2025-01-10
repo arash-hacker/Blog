@@ -39,6 +39,8 @@ Color
 Order and/or Sequence
 Positive Images
 Exaggeration.
+Narrator
+Grouping: similiar, diff, critical think, compare, analurz
 -------------------------
 
 Memory finds near likelihood of WORD. Image , memorial, voice, event. Then expand ir.
