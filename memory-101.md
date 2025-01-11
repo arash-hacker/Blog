@@ -41,6 +41,33 @@ Positive Images
 Exaggeration.
 Narrator
 Grouping: similiar, diff, critical think, compare, analurz
+         ----
+
+
+Music mnemonic
+Filter important tectonic
+Organising
+Create interesting
+Corner stone 
+Mnemonic 
+Rhyme 
+Song
+Big picture
+Acronym
+Create note/wrintg
+Spelling 
+Mental image/drawing
+Chunking/grouping
+Memory palace
+Use interval distributed
+Engage body movement
+Repetition
+Quiz
+Debate
+Teach
+Combination
+Recite association
+Recall when you relaxed
 -------------------------
 
 Memory finds near likelihood of WORD. Image , memorial, voice, event. Then expand ir.
