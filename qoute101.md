@@ -2008,7 +2008,29 @@ Cannot copy easily your solution.
 strategy Identitfy and analyze obstabcle 🌹
 
 </pre>
-<pre></pre>
+<pre>
+ 
+capacity of lang is capacity of learning
+there are 2 question in every question: the question itself, and why it has been asked. why(what reason)? what(what)? which (what one)? where(what place)? when(what time)? who(what person)? how(how , how much)? 
+
+qoute: the game that is not applicable, is not great for life!
+great player calc for other player or do the math for them . 
+qoute: if your boss said, you don't need to know it, they don't know it either very well. (sign of weakness)
+By overwhelming enemy, they got either weaken or distracted, smart one has mpre capacity
+best devs may not know language per se, but they can store and hanle multipe component faster, large, durable-er than others
+its now pareto law 80:20: its coming from fib number and porportion is 1.618....
+when you dont see ppl as problem and focus on solvnig problem politly and ppl as ally 
+treat every releation as long term relationship matter
+model respectfull behaviour regardless of how you have been treated
+be hard on issue not problem 
+the problem with current information is overloading, you don't know how much abstraction or filtering is needed to processs event, by default, brain wants to minize infos until it's compatible with our comfort zone
+intelligent+deligent+integrity
+faster+bigger+durable
+Ethan is a 10x exec who has the rare skills/traits of relentlessly hardworking + unusually high EQ + unreasonably high standards while thoughtful / reflective. Combined all that with being mission-driven and it’s a powerful combo. 
+CHESS BOKK CASPO
+Stellaries and HOI walkthrough.!!!
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
