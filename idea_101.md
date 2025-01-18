@@ -1671,14 +1671,27 @@ Thibk like .... 💎🥇
 اگه ریاضی بودیم چطور؟
 شیمی، فیزیک ...عمران برق 
 قیکت ارسال وبنج‌له المان.
+</pre>
+<pre>
+ 100 eco/polotic problem and how they solve it .
+game: math changer formula mama is you
+Timer + got
+Board game telated software tech company ; burndown, jira, em, ceo
 
+idea:  memory painting movies , less color , only main objects
 
-
-
-
+Make chess rwptile colorfull 💎💎💎
+newstral : neutral / unbiased new for every one
+stretegy of catan
+attack/ignore/dodge/deflect/escape/defence
+smart/fast/durable/largeCTX
+speed/istamina/braiN^2
+1, 20, 2X, X^2, 2^X, X!, X^X,
+with 1 CTX, intuition, experience,  linear thinker(2X), one system to all (X^2),    system thinker 2 BY 2 (2^X), time line 2x2 thinker X!, all possible system thinker X^X 
+a sick economy make everyone hate like monopoly . 
+intertia tolerance ppl, can succeed any time.
 
 </pre>
-<pre></pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
