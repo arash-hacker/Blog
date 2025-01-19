@@ -14,4 +14,5 @@
 [100_problem_solving.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/100_problem_solving.md).  
 [comment-convention.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/comment-convention.md).  
 [commit-convention.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/commit-convention.md).  
+[cognitive-baises.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/cognitive-baises.md).  
  
