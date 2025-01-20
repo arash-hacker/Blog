@@ -738,4 +738,7 @@ Disposition effect,: sell acumulated, unsell declined or decayed. brand
 * Ambiguity effect : untent  :discard idea if probability of a favorable outcome is unknown
 Conjunction fallacy: i like to win lottary ins of 1/10**1000,
 Normalcy bias:flood fire, black swan.
+====
+  ---cognitive baiases
+timeline, ctx, %, frame,multiple-data,dnt expect anything/anyone for somthing, just observe meaning over handwrititng,no-emo-like-hope-fear
 </pre>
