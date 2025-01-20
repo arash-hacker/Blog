@@ -588,3 +588,154 @@ Example: Eating an entire bag of chips just because it's a single package.
   sumary: timeline, ctx, % , frame, no-emo
   
 </pre>
+<pre>
+Egocentric Bias:Assuming everyone enjoys your favorite TV show.
+ostrich 
+
+Automation Bias:trust computer so much
+
+Escalation of Commitment wo find cause
+
+Hyperbolic Discounting:Preferring immediate rewards over larger, delayed rewards.
+
+Selection Bias:Distorting data or decisions by only focusing on selected or available samples.
+
+Belief Bias
+
+Confirmation Bias: group, family,
+
+Context Effect:Rating the taste of a drink higher in an elegant restaurant than in a fast-food outlet.
+
+Exposure Effect:Repeated exposure to something increases liking for it.
+
+Peak-End Rule
+
+Social Proof: Choosing a restaurant because it has a long line of people waiting outside.
+
+Spotlight Effect: Overestimating how much others notice your actions or appearance.
+
+Essentialism:Believing someone is inherently lazy based on a single instance of procrastination.
+
+Illusion of Control
+
+Illusion of Transparency
+
+Just-World Hypothesis
+
+Naïve Realism: other people are 'wrong' if their perceptions do not match ours.
+
+Observer-Expectancy Effect
+
+Hindsight Bias  Saying "I knew it!" after a sports team wins
+
+Leveling and Sharpening: Memory distortion where details are omitted (leveling) or exaggerated (sharpening).
+
+Misattribution of Memory: Attributing a memory to the wrong source.
+
+Zeigarnik Effect:: Tendency to remember incomplete tasks better than completed ones.
+
+Affect Heuristic: Making quick judgments based on emotions rather than facts.
+
+Cognitive Inertia:Sticking with previous beliefs despite new evidence.
+
+Default Effect:Preferring the default option presented rather than actively choosing alts
+
+|Effort Justification:Valuing something more if a lot of effort was put into obtaining it.
+
+Reactance: Resisting suggestions or rules perceived as limiting freedom.
+Example: Disregarding health advice just because it feels imposed.
+
+Time-Saving Bias:Underestimating or overestimating the time needed for tasks.
+
+Unit Bias: Believing a single portion is the appropriate amount to consume or use.Eating all the food on a large plate despite being full.
+
+Consistency bias	Incorrectly remembering one's past attitudes and behaviour as resembling present attitudes and behaviour.[155]
+
+Normalcy bias, a form of cognitive dissonance, is the refusal to plan for, or react to, a disaster which has never happened before.
+
+Backfire effect, a tendency to react to disconfirming evidence by strengthening one's previous beliefs.
+
+Conjunction fallacy, the tendency to assume that specific conditions are more probable than a more general version of those same conditions.[49]
+
+Less-is-better effect, the tendency to prefer a smaller set to a larger set judged separately, but not jointly.
+
+Domain neglect bias, the tendency to neglect relevant domain knowledge while solving interdisciplinary problems.[62]
+
+Ambiguity effect, the tendency to avoid options for which the probability of a favorable outcome is unknown.[69]
+
+Disposition effect, the tendency to sell an asset that has accumulated in value and resist selling an asset that has declined in value.
+
+Endowment effect, the tendency for people to demand much more to give up an object than they would be willing to pay to acquire it.[72]
+
+Pseudocertainty effect, the tendency to make risk-averse choices if the expected outcome is positive, but make risk-seeking choices to avoid negative outcomes.[74]
+
+* Status quo bias, the tendency to prefer things to stay relatively the same.
+
+System justification, the tendency to defend and bolster the status quo. Existing social, economic, and political arrangements tend to be preferred, and alternatives disparaged, sometimes even at the expense of individual and collective self-interest.
+
+Illusory truth effect, the tendency to believe that a statement is true if it is easier to process, or if it has been stated multiple times, regardless of its actual veracity. These are specific cases of truthiness.
+
+peoms are right:Rhyme as reason effect, where rhyming statements are perceived as more truthful.
+
+Hostile attribution bias, the tendency to interpret others' behaviors as having hostile intent, even when the behavior is ambiguous or benign.[130]
+
+Self-serving bias, the tendency to claim more responsibility for successes than failures. It may also manifest itself as a tendency for people to evaluate ambiguous information in a way beneficial to their interests (see also group-serving bias).[133]
+
+Curse of knowledge	When better-informed people find it extremely difficult to think about problems from the perspective of lesser-informed people.[92]
+
+Proportionality bias	Our innate tendency to assume that big events have big causes, may also explain our tendency to accept conspiracy theories.[116][117]
+
+Impact bias	The tendency to overestimate the length or the intensity of the impact of future feeling states.[46]
+
+Information bias	The tendency to seek information even when it cannot affect action.[99]
+
+Moral credential effect	Occurs when someone who does something good gives themselves permission to be less good in the future.
+
+Omission bias	The tendency to judge harmful actions (commissions) as worse, or less moral, than equally harmful inactions (omissions).[107]
+
+Truth bias is people's inclination towards believing, to some degree, the communication of another person, regardless of whether or not that person is actually lying or being untruthful.[138][139]
+
+Social cryptomnesia, a failure by people and society in general to remember the origin of a change,
+
+The Perky effect, where real images can influence imagined images, or be misremembered as imagined rather than real
+
+Turkey illusion is a cognitive bias describing the surprise resulting from a break in a trend, if one does not know the causes or the framework conditions for this trend
+
+Consistency bias	Incorrectly remembering one's past attitudes and behaviour as resembling present attitudes and behaviour.[155]
+
+Continued influence effect	Misinformation continues to influence memory and reasoning about an event, despite the misinformation having been corrected.[156] cf. misinformation effect, where the original memory is affected by incorrect information received later.
+
+Context effect	That cognition and memory are dependent on context, such that out-of-context memories are more difficult to retrieve than in-context memories (e.g., recall time and accuracy for a work-related memory will be lower at home, and vice versa).
+
+Generation effect (Self-generation effect)	That self-generated information is remembered best. For instance, people are better able to recall memories of statements that they have generated than similar statements generated by others.\
+
+Illusory truth effect (Illusion-of-truth effect)
+Levels-of-processing effect	That different methods of encoding information into memory have different levels of effectiveness.[161]
+
+Next-in-line effect	When taking turns speaking in a group using a predetermined order (e.g. going clockwise around a room, taking numbers, etc.) people tend to have diminished recall for the words of the person who spoke immediately before them.[165]\
+
+The notion that concepts that are learned by viewing pictures are more easily and frequently recalled than are concepts that are learned by viewing their written word form counterparts
+
+Processing difficulty effect	That information that takes longer to read and is thought about more (processed with more difficulty) is more easily remembered.[174] See also levels-of-processing effect.
+
+Rosy retrospection	The remembering of the past as having been better than it really was.
+
+Testing effect	The fact that one more easily recall information one has read by rewriting it instead of rereading it.[182] Frequent testing of material that has been committed to memory improves memory recall.
+
+Zeigarnik effect	That uncompleted or interrupted tasks are remembered better than completed ones.
+---
+Gist
+visual better than readin/. writing is better than reading.
+nxt in q
+Omission bias: action is much bad as inaction
+Information bias: seek more
+Impact bias=Proportionality bias
+Rhyme as reason effect,:ads
+Illusory truth effect: ads
+Pseudocertainty  effect: risk for negative, unrisk for postive
+Endowment effect
+Disposition effect,: sell acumulated, unsell declined or decayed. brand
+* Ambiguity effect : untent  :discard idea if probability of a favorable outcome is unknown
+Conjunction fallacy: i like to win lottary ins of 1/10**1000,
+Normalcy bias:flood fire, black swan.
+</pre>
