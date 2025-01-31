@@ -2031,7 +2031,40 @@ CHESS BOKK CASPO
 Stellaries and HOI walkthrough.!!!
 
 </pre>
-<pre></pre>
+<pre>
+No/All problem can be solve by emotion
+Ppl w emotion thinkjng are on drugs
+such a traitor to tell story about sheperd and one egg to house .
+gamer mind, npc mind, ninja, gladiator, architect, bard, skimmer, garden,
+emotion can be taken or skipped(dogde, run,...)💎
+
+
+Strawman Argument:misinterpret or oversimplify argument      \
+Ad Hominem: personal trait or credibility                            -  > not focusing on problem💀
+Whataboutism: opponent only position or previous action /
+----
+doesnt matter who said, if its logical and by system as. whole argument, you should pay attention
+
+
+Thinking in one thing is focus, picturing evidence qfter act is emotional damage to your mood
+Cigar-> die
+Talk and defence : fight.
+No problem can be fix by emotion.
+Dont solve problem by force
+Your meth probelm had only one solution, even your tracher force you to solve whithon framework. World problem has at least two solution.
+
+If you dont program your brain, brain will program by shits and hookers, maybe day drraming myb day nightmaring
+
+Every personality is actor model  💎 they think like that. So personality evolves and extended.
+Consistent plan, predicatablr opponet base chess 💎
+When some body says he knows 3 language, grandmaster of chess, ikbow they r bluffing 💎🥉
+Analytical pragmatic. 💎💎💎💎
+
+
+
+
+ 
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
