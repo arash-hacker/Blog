@@ -1692,7 +1692,38 @@ a sick economy make everyone hate like monopoly .
 intertia tolerance ppl, can succeed any time.
 
 </pre>
-<pre></pre>
+<pre>
+
+ نوشتن کتاب abstract computer concepts
+strategy for catan 
+strategy for azul
+wingspan yt
+:::::
+
+movie:  mother dog and 4 tiger
+Mbti2: manual vs mental. Tactical vs strategic. 5 vs 10 mental capacituly. GAmer attachment. memory. Speed. Large. nature vs fature.
+
+false.fake. fawn melody for lang.think as lang creator.
+
+typ-120-spk- 360-read-1080-think-2000
+You will learn dnt blame other.Take responsibility. Take good risk from luck.
+Finding youbr wrong is not sad. Being idiot is sad.
+Making rhyme for qoute doesnt qualify your thought! As we learnt in school.🔥
+
+Any right brwin activity may have flaw in your decision! 💎🥉 Rhyme, moral, Hurry, fomo, cry.
+
+There is monster under your head(bed)! Thqts your thought.
+
+Computer -> wow/age of emp/duke. ->better engliah -> better books > better skill > faster eng read. > Variety of books
+
+Lose like pro! how? they learn from it. and exapnd tst
+
+Heros of internet website 🔥
+If you cant sell if mentally you cant sell it really worls
+
+Point if game , work,... Is to play in your heqd ..💎
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
