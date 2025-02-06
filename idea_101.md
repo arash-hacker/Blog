@@ -1724,7 +1724,15 @@ If you cant sell if mentally you cant sell it really worls
 Point if game , work,... Is to play in your heqd ..💎
 
 </pre>
-<pre></pre>
+<pre>
+ Nipple beads for pervert usets
+
+Harakiri, decoy, bait, escape, ...
+Attqk..defence
+Ignore. Deflect. Doge
+CHESS summary : 🥇🥇🥇  SWOT & Pawn structure -& OCOT > WO_POST
+Only aircond idea
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
