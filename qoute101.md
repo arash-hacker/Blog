@@ -2065,7 +2065,31 @@ Analytical pragmatic. 💎💎💎💎
 
  
 </pre>
-<pre></pre>
+<pre>
+ If u want play chess, play it
+If y eant be strategist, try strategist,
+Speak spanish,? Speak it then
+Dnt think abpur results never, trust runnaway.
+Errors can be fized when reached🔥♟️
+Control what you think, think what ypu control;;;
+
+wealth is not what you have in asset, cash, bank ..... either invested time to convert to wealth.
+knowledge is not what you read / learn / heard. though it's KT what you use when you want to solve a problem.
+Creating KT every days?! 💎
+If u dnt care about ur time, u dnt care abput mpney 🥇
+every thing is investing from freind spouse child money...
+emotion can't solve problem, but make other non-rational people happy if you smile. 
+they never make mvoie about positiv P/L in market alaways crash part.
+.......
+1️⃣Stick to plans vs  Opp plans
+2️⃣Octopus trace acticity.
+3️⃣Check . Capture. Threat.
+4️⃣Traps/Weaks/Oppurt/Strong(King safty oth)
+5️⃣Pawn structure.
+.....
+What soul eats, body eats equivolant. Vice verca.
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
