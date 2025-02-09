@@ -1764,7 +1764,25 @@ Reading Language is not about seeing word and make meaning, its about make your 
 Also language reading expand your intropy size and you grow octo.
 
 </pre>
-<pre></pre>
+<pre>
+ How much emotion do you need to enjoy movie?!
+Hoe much serotonine you need to enjouy music, wct, dance, art ...emotions..
+Love is touch, oxytosin is love and love story wo sex is bs
+
+
+Compliment create oxytsin, and are words, they effect like touch, touch is love(sort of) and there for, words can trigger emotion!
+
+Laugh is endorphine like comedy and painkiller. Choclate iw drug and opium for addicted. 
+Best drug(pain killer) is execercise.! 
+
+
+Octo emotipn: same as intelect octo but can handle emotions.
+
+How far we need to use emotion? Have stroke while watching horot or tragic movie and laugh af from comrfy?
+
+Hoe intelect you need to use for problem? 
+As far as you can use in intelect, like elo chess
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
