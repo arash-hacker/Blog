@@ -10,8 +10,7 @@
 [system design 101.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/system-design-101.md).       
 [focus.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/focus.md).  
 [100_high_iq_signs.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/100_high_iq_signs.md).       
-[hype_doc.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/hype_doc.md).    
-   
+[hype_doc.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/hype_doc.md).   
 [EM.md](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/EM.md).      
 [100_problem_solving](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/100_problem_solving.md).    
 [comment-convention](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/comment-convention.md).  
