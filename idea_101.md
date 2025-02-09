@@ -1733,7 +1733,37 @@ Ignore. Deflect. Doge
 CHESS summary : 🥇🥇🥇  SWOT & Pawn structure -& OCOT > WO_POST
 Only aircond idea
 </pre>
-<pre></pre>
+<pre>
+اگه عقلت استفاده نکنی و ببازی بازم احمقی. این ملت همرو احمق میدومن الا خودشونو.
+بدون انالیز و رتبه و دیتا فقط دور خودت میچرخی
+Is this life a game?
+All meNtal models?
+Is emotion usable onlu after ratiinal usage? As human can have one zense per time!!!
+EMPTY GAME: PLAYING WITHOUT REVIEWING IS LIKE WASTING TIME
+Similarity of 0r g@ming and reading or piano?!?!
+افانی سریع نتیجه گیری میکنه و آس بازی میکنه
+Ppl has stress bcs thry are not fit. T r fake, incompetemce, low tst....t dnt know game and rule
+
+I dress well, we r not same, 
+I consider more desig of house. We r not same
+
+
+These r not game theory!
+✅Random-natural law 0-100antropy
+❌Emotional-Ethic
+🌈non-Intractive decision making atleast 2..: peronal eating -> systematic and strategic view. But pne is also system thinking decision
+....
+Land dsnt matter, ideology matter most. Every body can come and back but idea remwins.
+Postvmature optimizarion is when you dont need optimize cquse its good .
+Art, music painting,  sport and in general, emtions are objective and depends on dopamin itruding parts and habit.
+Happiness comes from habit, more you do less happy you are.
+
+
+Reading Language is not about seeing word and make meaning, its about make your octo to think about it and develop idea. You are not shit eater to digest whatever they give you
+
+Also language reading expand your intropy size and you grow octo.
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
