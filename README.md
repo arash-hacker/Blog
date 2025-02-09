@@ -1,4 +1,4 @@
-[dark patterns 101 WIP](https://www.deceptive.design/types)        
+[dark patterns 101 WIP](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/dark_patterns_101.md)        
 [anti patterns 101](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/all-antipattern-demystified.md).     
 [code smells 101](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/code-smell-101.md).     
 [design patterns 101](https://arash-hacker.github.io/blog?id=https://raw.githubusercontent.com/arash-hacker/Blog/master/design-patterns-101.md).     
