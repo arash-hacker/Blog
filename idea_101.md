@@ -1783,7 +1783,31 @@ How far we need to use emotion? Have stroke while watching horot or tragic movie
 Hoe intelect you need to use for problem? 
 As far as you can use in intelect, like elo chess
 </pre>
-<pre></pre>
+<pre>
+ movie: all ppl are hero and normal human walks in 
+movie: they discovered pwer of quantum computing and travel to time to fix issues, but someone tricked them to wrong honey pot.
+
+
+Olympic of emotion(emotion are objective and personal related so cant trigger all society.), physic(sport), intelligent(memory, calculation, numbers, tst visionary), cultural : enter to a tribe and communicate to get holy prize.(real life)
+
+
+
+IQ (Intelligence Quotient)
+EQ (Emotional Quotient)
+AQ (Adversity Quotient)
+CQ (Cultural/Creativity Quotient)
+SQ (Social/Spiritual Quotient)
+FQ (Financial Quotient)
+MQ (Moral Quotient)
+LQ (Learning Quotient)
+TQ (Technology Quotient)=DQ (Digital Quotient)
+PQ (Physical Quotient)
+----
+A job with all high qoutient applied!!! CTO - hacker -
+--
+first smart cheater hacker....
+game: you have a game without winning condition, your goal is to define it and make most of people winner.  who stay last. wins the game.(define medium value to support most)
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
