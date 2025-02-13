@@ -2116,7 +2116,50 @@ Clustering of tree ,dsnt work if child.leafs are cpnnected at the end . T r grap
 If you are not thi ker independent, book,video, audio, consultant doesnt help at all.
 
 </pre>
-<pre></pre>
+<pre>
+ 1- Attack person per se
+2- Manipulate argument:::exaggerate or oversimpllify(mock,redicules)
+3- Distract arguments
+4- No support/opposite available against argument
+               (prove to accept / disprove to rejet)
+5- Over prediction/over history 
+6- Self refrence argument
+7-apeal to unlogical reference❓:
+   authority, family, friends, enemy, stranger, society
+   novelity, tradition
+   fav person,
+   compare: analogy, idiom, porportion, poem, story,
+    hierarcy,level,genetic,   other.
+    science, moral, supersticios, emotion, justice, 
+    question itself.
+    history, story, common practice
+    force, 
+    flattery
+    Division Fallacy:expand top2down down2top 
+           generalization(composition of subset)
+    normalcy(status quo)
+    ⚠️ random rule(exception from nowhere)
+    ⚠️ relation to source and benefit of this.
+8-(conspiracy)unrelated conicident and parallel accident
+9-Equivoc﻿ation(generalization phonotic)
+10-single cause only (not all)
+11-lazy and sloth in calculation(burden of proof)
+         inertia(its takes alot of time, eneryg...) , 
+         false normalcy(false as normal and ubiquotos), 
+         status qou(if it works, dont touch) falacy
+12- Bad reasoning(incomplete analysis.)
+           ⚠️ Denying the Antecedent
+           ⚠️ Affirming the Consequent: 
+                       wet -> rain, no rain-> no wet
+13-sunk cost / all in / i spend 6k so far
+14-zero sum games.
+15-default assuming(loaded language.) 🎖️
+16-position: far left, far right, middle ground, none, unknown
+17-percent: 10% fav, 50% sup, 0.1 incident(one accident), ? percent (afaiseen ⭐️)
+18-perspective view
+----------------------------------------------------------
+یه شخص ذلیل هیچ وقت نمیتونه به جای بالای برسی و چون ظرفیتشو نداره
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
