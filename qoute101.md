@@ -2090,7 +2090,32 @@ they never make mvoie about positiv P/L in market alaways crash part.
 What soul eats, body eats equivolant. Vice verca.
 
 </pre>
-<pre></pre>
+<pre>
+ Sun Tzu: “Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat.”
+
+life is a game wo winning state or and ppl may not want to participate into game. whatabout that? 
+we believe EVERY thing is repsentable by MATH but they are not game?!
+What is defination of game?
+The point of chess is to not involve emotions because they[emotions] are drug and drugs are good.
+
+It's ok if you can't find solution right away and need to think about it. 
+
+Is life a game?
+ChatGPT said:
+§§§It depends on how you look at it. Some people see life as a game because it involves strategy, choices, risks, rewards, and competition. There are rules (social norms, laws, natural limitations), players (people around you), and different levels of success or failure.
+
+On the other hand, life isn't a game in the sense that there’s no clear objective, no universal scoreboard(❌ hidden), no restart button(one time ❌) and no saving mechanism(❌ no memory slot) Unlike a game, life is unpredictable(❌ Dice), deeply personal(❌ fps), and doesn’t have a set of predefined "winning conditions."(❌ you should set it)
+
+So, it really comes down to perspective—do you approach life as something to be played strategically, or as an experience to be lived fully without worrying about winning or losing?§§§
+
+all(ways)/nobody/everybody/never are wrong words, data only speaks, most/often/least
+i am chess player, not good as professional, but still I am . so what❓
+
+Clustering of tree ,dsnt work if child.leafs are cpnnected at the end . T r graph
+تنبلی گناهش از حماقت بیشتره...حتی اگه بدونی راه دذیت چثه نمیری سمتش
+If you are not thi ker independent, book,video, audio, consultant doesnt help at all.
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
