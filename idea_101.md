@@ -1,4 +1,5 @@
-<pre>tetis.              
+<pre>
+tetis.              
 bloxx.              
 park machines.              
 treee reduce.              
@@ -1807,6 +1808,9 @@ A job with all high qoutient applied!!! CTO - hacker -
 --
 first smart cheater hacker....
 game: you have a game without winning condition, your goal is to define it and make most of people winner.  who stay last. wins the game.(define medium value to support most)
+ Jelyfish humwn life
+magic → physical → finance → computer → faster parallerl quantom
+Theory: Music and picuture: human quto generwte music to picture for empqthying
 </pre>
 <pre></pre>
 <pre></pre>
