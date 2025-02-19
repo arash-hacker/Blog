@@ -2159,6 +2159,19 @@ If you are not thi ker independent, book,video, audio, consultant doesnt help at
 18-perspective view
 ----------------------------------------------------------
 یه شخص ذلیل هیچ وقت نمیتونه به جای بالای برسی و چون ظرفیتشو نداره
+ 
+Once lazy, always busy
+Ceo of ideas
+امادگی ذهنی، عامل امادگی فیزیکیس، و برعکس
+You can see all possibility when u imagine all posibilityes
+
+....
+Meaning of life: survive until next sleep.6
+Surbive tomorrow
+Brwin desinged to survive not optimzation..
+Because we survived by family we continue to survive alone.
+...
+Life no need to be hard, afa you learn either mistakes or exp and fix yr tst
 </pre>
 <pre></pre>
 <pre></pre>
