@@ -1,4 +1,19 @@
 <pre>
+TLDR: >>>
+1- Attack person per se
+2- Manipulate argument
+3- Distract argument
+4- Apeal to unlogical reference❓
+5- Lazy and sloth in calculation(burden of proof)
+         inertia(its takes alot of time, eneryg...) , 
+         false normalcy
+         (false as normal and ubiquotos), 
+         status qou(if it works, dont touch) 
+6- Default assuming(loaded language.) 🎖️
+</pre>
+
+<pre>
+ 
 Ad Hominem: “Don’t trust his advice on health—he’s been caught lying before.”
 Straw Man: “You want more environmental regulations? So you want to shut down all industry!”
 Red Herring: “When asked about pollution, the politician instead discussed his opponent’s voting record.”
