@@ -1812,6 +1812,112 @@ game: you have a game without winning condition, your goal is to define it and m
 magic → physical → finance → computer → faster parallerl quantom
 Theory: Music and picuture: human quto generwte music to picture for empqthying
 </pre>
+<pre>
+♠️ A 2 3 4 5 6 7 8 9 10 J Q K
+ 11 12 13 ... 19 10    `51` `52` `53` 
+ 
+❤️ A 2 3 4 5 6 7 8 9 10 J Q K
+ 21 22 23 ... 29 20   `61` `62` `63`  
+ 
+♣️ A 2 3 4 5 6 7 8 9 10 J Q K
+ 31 32 33 ... 39 30    `71` `72` `73`
+ 
+♦️ A 2 3 4 5 6 7 8 9 10 J Q K
+ 41 42 43 ... 49 40    `81` `82` `83`
+ 
+</pre>
+<pre>
+ leaf child graph: b**n
+table calculation: n**2
+cube calculation: n**3
+count of table , cube , depth of graph. C*(b**N), C*(N**3)
+------------------------------------------------------------
+</pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
+<pre></pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
