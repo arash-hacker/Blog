@@ -1,5 +1,19 @@
 <pre>
 TLDR: >>>
+
+                           distract argument (attack person, argument, environment...)  <|
+                                    ^                                                    |
+                                    ^ detach(escape, ignore,...)                         |
+                                    ^                                                    |  
+ (past) default assuming -> lazy and sloth calculation -> manipulate argument   (future)<|
+                                    v
+                                    v attach(dodge, deflect)
+                                    v
+                           apeal to unlogical reference
+</pre>
+
+<pre>
+
 1- Attack person per se
 2- Manipulate argument
 3- Distract argument
