@@ -2270,10 +2270,12 @@ PRE-LOAD SYS: MID CALC
 coginitive bias: timeline,default assum, ctx, %, frame,no-emo 
 combat style: attack/ignore/dodge/deflect/escape/defence/deceive
 
-=== KNOW HOW SYS WORK(SYS info), PRE-LOAD(cache), POWER(fst,big,dur,cache), TEST RESULTS 🥇🥇🥇🥇🥇🥇 💎 💎 
-
+=== KNOW HOW SYS WORK(SYS info), PRE-LOAD(cache), POWER(fst,big,dur,cache), TEST RESULTS(find why error happens) 🥇🥇🥇🥇🥇🥇 💎 💎 
+ANALYTIC - EXECUTION - TEST FEEDBACK ⭐️⭐️⭐️⭐️⭐️ >>> sys builder as octo(fcbd: facebud) w/ test feedback(fdbc).
+ i guess facebud with fdbc is enough to find correct sys info and correct itself ??? 
 --------------------------------------------------------- 
 why I lost interest in games❓
+
 </pre>
 <pre></pre>
 <pre></pre>
