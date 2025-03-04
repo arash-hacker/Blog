@@ -1833,7 +1833,12 @@ cube calculation: n**3
 count of table , cube , depth of graph. C*(b**N), C*(N**3)
 ------------------------------------------------------------
 </pre>
-<pre></pre>
+<pre>
+ 
+3d weiqi
+situation are always cooler than you think 💎💎💎💎💎
+refinemnt by design paradiem in tech orgs 🥇
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
