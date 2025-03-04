@@ -2178,7 +2178,103 @@ Life no need to be hard, afa you learn either mistakes or exp and fix yr tst
 people who believe in luck or can't deduct correctlh, tend to believe in superstitous
 graph theory: event A, B are either leaf or parent relation ship
 </pre>
-<pre></pre>
+<pre>
+ when life of lion is to hunt it's surviving mode → security → family → accomplish → creativity -> gaming mode.
+You pay your time in games, so if you don't optimize either time or reward its not worth it.(pre planning and high tst)
+there is no parallel processing, myltitasking. all at one. so bigger, cacher, faster,durable. 
+
+repeat/deadline/calmer/preplanned → faster
+starting big → bigger
+remember lesson → cacher, durable.
+🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇
+
+SPD-STRACTIC-DIFF STYL-STAMINA
+ANALYZ, TRAIN, READ PROs ASSESS , EXPERIMENT, CONTRIB
+→ → → LNG DIF PRO ANLZ 🔁→ SPD 💎 
+
+
+--------------------------------SPEAD AND CONSISTENT(NO LUCK)-------------------------------
+Speed of execution
+Consistency in results
+Quick response to enemy actions
+------------------------------KT STRTGY TCTIC TCNC MECHANIC MAP
+Deep understanding of game mechanics
+Knowledge of meta strategies
+Mastery of advanced techniques
+Efficiency in decision-making
+Knowledge of map layouts
+---------------------------------MULTIPEL ROLE STYLE
+Ability to play multiple roles
+Competence in different game modes
+Adaptability to different playstyles
+------------------------------ STAMINA AND LONG_RUN
+Ability to play back-to-back games
+Focus maintenance over time
+Mental resilience under fatigue
+Hydration and physical care during play
+------------------------------GOOD TEAMATE
+Conflict resolution within teams
+ــــــــــــــــــــــــــــــ Mental Resilience & Psychology(LOGICAL)
+Ability to stay calm under pressure
+Control over emotions after losses
+Strong competitive mindset
+Patience in drawn-out matches
+Concentration in high-stress moments
+Capacity to handle criticism
+ــــــــــــــــــــــــــــــ ANALYZ, TRAIN, READ PROs ASSESS , EXPERIMENT, CONTRIB
+Daily practice hours
+Review of own gameplay footage
+Studying professional players' strategies
+Willingness to learn new techniques
+Self-improvement mindset
+Experimentation with different tactics
+Regular skill assessments
+Collaboration with top players
+Contributions to game strategy discussions
+ــــــــــــــــــــــــــــــ CRAFTMAN
+Optimal keybinds or control settings
+Mastery of in-game controls
+Efficient movement and positioning
+ــــــــــــــــــــــــــــــ PRO TOOLS INVEST
+Use of professional gaming gear
+Ergonomic gaming posture
+ــــــــــــــــــــــــــــــ HISTORY AND LESSONS.
+Efficient resource management
+Familiarity with game updates and patches
+Mastery of character mechanics
+
+🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇🥇
+you remember what you can see mentaly not repetetive parrot.
+
+
+....
+We dont memorize, we learn and understand concept. We are not trash to store bullshits
+..
+Seeing is believing but full seeiing is judjing 
+یادگیری چیزی جز تمرکز بر کاربرد ,مفهوم نیست !
+Ppl memorise by experience of connecting and learning.
+Learning is nothing expect cpnnecting concept.!!! 
+----------------------------------------------------------
+عجله کردن در دیدن فیلم ٬ بازی ٬ کار و... به تدریج قوای تحلیل رو از بین میبره و اجازه فکر کردن نمیده 
+مثل سرعت حجم پایداری در تفکر
+------------------------------
+learn ; find mistake ; abstract it; experminet and fix next time. ⚠️ 💎 ✅ 🥇
+we just sell our time in exchange of money. or labor and time. or body and time. or mind or time.
+
+laziness is root of all evils. dnt fix those ppl
+you want to defeat country; deafet them in games
+------------------------------------------------------------------------------------ 
+rel swot ray (attack enemy weakness(w/ ur wk/strng) by defending ur weakness/strong)
+fallacy:  (past) default assuming -> lazy and sloth calculation:
+PRE-LOAD SYS: MID CALC
+coginitive bias: timeline,default assum, ctx, %, frame,no-emo 
+combat style: attack/ignore/dodge/deflect/escape/defence/deceive
+
+=== KNOW HOW SYS WORK(SYS info), PRE-LOAD(cache), POWER(fst,big,dur,cache), TEST RESULTS 🥇🥇🥇🥇🥇🥇 💎 💎 
+
+--------------------------------------------------------- 
+why I lost interest in games❓
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
