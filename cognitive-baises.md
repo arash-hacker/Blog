@@ -740,5 +740,5 @@ Conjunction fallacy: i like to win lottary ins of 1/10**1000,
 Normalcy bias:flood fire, black swan.
 ====
   ---cognitive baiases
-timeline, ctx, %, frame,multiple-data,dnt expect anything/anyone for somthing, just observe meaning over handwrititng,no-emo-like-hope-fear
+timeline, ctx, %, frame,multiple-data,default assum, power of calc(fast, big, durable, cached),dnt expect anything/anyone for somthing, just observe meaning over handwrititng,no-emo-like-hope-fear
 </pre>
