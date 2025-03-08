@@ -2277,7 +2277,46 @@ ANALYTIC - EXECUTION - TEST FEEDBACK ⭐️⭐️⭐️⭐️⭐️ >>> sys buil
 why I lost interest in games❓
 
 </pre>
-<pre></pre>
+<pre>
+email -> ses -> qouta -> j5 email ok (4 ❌)
+vod lambda -> BO-fe -> aws functino name ->  (build)backoffice-be ->  serverless -> (5 ❌ )
+                             user creation -> service(s) -> email invoke 🥇     
+                               webappusercreated -> queue →  cognitopool  -> 
+				presignup -> trigger -> lambda -> extension(7✅ ) ⚠️ 12 ⚠️ 
+---------------------------------------------------------   
+every thing is about resources, either managemnt, brain cognitive, or work life balance
+fcbd-> fdbk -> sys is about **durable corrective sys builder feedbacker**. DCSB
+without competition, progress never happens. everything stays in equlibrium
+
+Big divide by Duration: B/D sys builder w feedback
+------------------------------
+Reading
+Writing (stories, poetry, journaling)
+Movie watching
+Painting
+Photography
+Cooking
+Gardening
+Calligraphy
+Playing a musical instrument
+Puzzle solving (crosswords, Sudoku)
+Chess
+Board games
+Video games
+Running
+Yoga
+Learning a new language
+Magic tricks
+Martial arts.Archwry
+Rock climbing
+Camping
+Traveling
+Learning about history or science
+....
+خنگی شما همیشه بع عزیزانتپن صدمه میزنه، کن کمش حرصه و عذابه
+game make you yhink not work
+ 
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
