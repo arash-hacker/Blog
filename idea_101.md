@@ -1839,7 +1839,23 @@ count of table , cube , depth of graph. C*(b**N), C*(N**3)
 situation are always cooler than you think 💎💎💎💎💎
 refinemnt by design paradiem in tech orgs 🥇
 </pre>
-<pre></pre>
+<pre>
+ No nose, jo til revelation! 
+Count last distraxt technic ⁉️❌💎 
+
+hikaru no go ... 
+financenbook
+De ge
+<details>
+  <summary>games</summary>
+  dota2 walkthrough 
+  hades
+   hollow knight
+  balatro
+   duel catan
+   catan thinking
+</details>
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
