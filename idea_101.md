@@ -1856,7 +1856,10 @@ De ge
    catan thinking
 </details>
 </pre>
-<pre></pre>
+<pre>
+ Memoey has shape like 3d lofel or curcing gobel
+Beads genit
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
