@@ -2317,7 +2317,35 @@ Learning about history or science
 game make you yhink not work
  
 </pre>
-<pre></pre>
+<pre>
+	ادمی که خوب بازی نمیکنه٬ خوب هم کار نمیکنه 
+i know emotional damage, but what is inteligent damage
+میشود با تفکر اگانه روی مساله مدیتشین کرد و تنفس
+با مدیتشن  خلاع تفکر میتوان فهمید ذهن به کدام سو متمایل است، پرسشگر، ازاردیده، ...
+خلافبت درست فقط از اسکمپر سیستم میاید 
+train hard, sprint, rests, reasses fdbk loop, train , spritn, rests, re-assess
+build- test- fdbk
+A BAD PLAN IS BETTER THAN NO PLAN
+Think fast / make chqrisma by slow.
+Full focus , stick to it
+Grows is expo not linear.
+
+Dnt look for aimple answer!!
+What we called BAD, if there is no emotion.
+Like framason, or satanist.
+
+Should we act neutral in society or smiling ? How it affect socioty?Based on caricatoor!!! And fact cjecking....AC: netural bcs ppl are idiot to detect happy as douchbag! 
+
+GOOD FOR BRAIN ----
+
+Breath 20% . 
+Posture 18%. 
+Creatine 30%> 
+.fat 60% avocado, olive, salmon,egg. Spinage
+ fasting 5:2. 
+Green tee...water...
+Nose-picking....
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
