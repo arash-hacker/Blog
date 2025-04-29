@@ -2346,7 +2346,38 @@ Creatine 30%>
 Green tee...water...
 Nose-picking....
 </pre>
-<pre></pre>
+<pre>
+You cannot predict what you cannot see 🧠
+One wwy out of bad assumption is to create polymorphism assption for new data or prev knowledge now!!!
+Why monitor is off? Socket, dbl socket, pc connection, button, power button, how it should work, creator idiotness!!!
+Is on!
+Is connected?
+Is detected! 
+....
+CC: when you are afraid becase you can't caluclate for him
+Tctc wo strtg noise.
+Strtg wo tctc slow winning
+....
+Idea is like, bevause u cant see it, cant do it.
+Whatever u see is whatever u doing 
+Cat going out, hourse break stable,...because they didnt show him.
+even in chess you dont play move wgeb you cant see .♟️
+Tactic: pin, attract, detract
+Strategy, free mpvement, robust defence, trade off posts, ongoing pawn, 
+Stractic: reading position, +2 plans...
+Test, before being tester 💜
+----
+it's really true, what happens in your mind, reflect your attitude. most ppl poor in mind or thinking ability or experience or creativity, they also are poor in wealth, friends, family , career and progress.
+-------------------- 
+if you want to trial/error to find solution, why not tring to mencal it and expand difficulty. 
+if you solve it first mentally, you wont regret times that spent. ✅ 
+but if you trial/error and can't find answer, you will regret difinetly plus adding thinking time again with pressure, stress, ❌ 
+==================== 
+we don't think, we just approve/reject patterns. are we validator?
+* so bring most patterns as you can and hold it (memory) 123 or 312 or 132 
+* validate them (pattern) NNA
+	
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
