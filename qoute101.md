@@ -2376,7 +2376,9 @@ but if you trial/error and can't find answer, you will regret difinetly plus add
 we don't think, we just approve/reject patterns. are we validator?
 * so bring most patterns as you can and hold it (memory) 123 or 312 or 132 
 * validate them (pattern) NNA
-	
+--- 
+	ppl are build by magnets. They tend to stick to their favorite pole believes and ideas. be open flex and not sticky.
+	easy is always favorite. without favorite ppl are open to every things. 
 </pre>
 <pre></pre>
 <pre></pre>
