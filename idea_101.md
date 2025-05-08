@@ -1864,7 +1864,7 @@ Beads genit
  How smt is not cpnnected(directly, indirevtly) tgtr but work along side
 Ppl cant see solution bcs octo Sticked to one side or one piece 🧠♟️❤️🌈
 </pre>
-<pre></pre>
+<pre>points of game is not playing vs other. it's about knowing yourself. you are final rival and your mental system thinkgin</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
