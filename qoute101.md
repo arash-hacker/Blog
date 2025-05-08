@@ -2380,7 +2380,16 @@ we don't think, we just approve/reject patterns. are we validator?
 	ppl are build by magnets. They tend to stick to their favorite pole believes and ideas. be open flex and not sticky.
 	easy is always favorite. without favorite ppl are open to every things. 
 </pre>
-<pre></pre>
+<pre>
+smart enemies make peace, only fools declare wars
+only logic can solve problem even emotional solutions
+YOUR MMEORY IS YOUR MENTAL IMAGE: EXPERT CAN DO BLINDFOLD
+....
+Calc and memorization. Stamina! 
+....
+Revolution of gamer
+	
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
