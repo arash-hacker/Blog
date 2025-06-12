@@ -2390,7 +2390,23 @@ Calc and memorization. Stamina!
 Revolution of gamer
 	
 </pre>
-<pre></pre>
+<pre>
+	For being good, you need to know how to not be bad! Choosing afterward is your true nature....
+
+
+it's interesting how smart guys can handle multiple section together, and most people get tricked by magician because they too much focus one one spot, or.programmer wrongly expect program appear in screen 3 but it's on screen 1 always. detecting where it can go wrong and finding missing spot is always crucial 🥇 
+
+Just because you didn't use it, doesn't mean you wont need it. ✅ 
+By endure what other cant endure, u can do what ppl cant di
+قانون و منطقی وقتی برقرار است که هر کس با ذهن خودش بفهمد که سیستم منطقی کار میکندمثال وقتی که یک قانون جدید میخوانیم: مدال ورب ....باید این مدال ورب یا دو معنی داشته باشد ٬ یا از همان یک معنی پیروی کند. در غیر اینصورت از لحاظ منطقی نباید یک کلمه دو معنی بدهد٬ ولی دو کلمه یک معنی قابل قبول است
+
+من همیشه جیزی رو انجام میدم که دیگرون نمیتونن٬ چیزی رو قبول میکنم که دیگران نمیخان قبول کنن٬ چیزی رو میبینم که دیگران نمیبینن٬ و چیزی رو ایمان دارم که دیگران نمیرسن بهش
+you are either consumer or producer, if consumer, don't nagg for bugs and just follow. while producer think about eerything and don't trust feature at first
+--------------------
+کسی که تنبله، زیاد فک نکینه و رابطه برعکس داره با زرنگی
+تحت تاثیر موسیقی و مواد و عاشقی و سسک زودتر تسلیم میشن
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
