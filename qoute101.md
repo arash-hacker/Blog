@@ -2429,6 +2429,9 @@ you are either consumer or producer, if consumer, don't nagg for bugs and just f
 تمرکز: نقاشی ذهنی. پیانو ذهنی بازی ذهنی painting: score: :design
 تحلیل اتفاقات روز و گذشته آینده افراد و خود- journal
 writing-design-journal
+
+ GQ: gamer quantity
+Ppl believe to only option they have, tgy are coward to go deep in their doubt.
 -------------------- 
 
 
