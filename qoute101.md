@@ -2459,7 +2459,7 @@ redesign your time, value your time and programm it
 focus is what you need to travel, no more dopamine or ecstasy
 ====================
 
-==================== →→→→ work in CHAOS
+==================== →→→→ working in CHAOS
 ==================== →→→→ no EMOTION in face
 ==================== →→→→ it's all Line/edge/weights you remeber not dot
 ================ →→→→ and it's just giving meaning and pre-experienced 
