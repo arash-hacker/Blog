@@ -2463,7 +2463,7 @@ focus is what you need to travel, no more dopamine or ecstasy
 ==================== →→→→ no EMOTION in face
 ==================== →→→→ it's all Line/edge/weights you remeber not dot
 ================ →→→→ and it's just giving meaning and pre-experienced 
-=========================→→→ Sleep, Nutrition, and Exercise
+=========================→→→ Sleep, Nutrition, Mobile and Exercise
 </pre>
 <pre></pre>
 <pre></pre>
