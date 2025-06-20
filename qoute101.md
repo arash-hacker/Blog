@@ -2436,8 +2436,35 @@ Ppl believe to only option they have, tgy are coward to go deep in their doubt.
 
 
 </pre>
-<pre></pre>
-<pre></pre>
+<pre>
+בסת טילור
+פרי תמרין, הר רוזה דאסתגאה׳י מאטריסי עשר-בעל-עשר רא זהני מהאסבה מיקארד.
+תאוואנא׳י חַל דאסתגאה׳י מועאדלאת בא סאד מג׳הול רא דאר זהן נאדאשְת, אמא תא ביסט מג׳הול רא בא דאקאת באלא אנג׳אם מידאד.
+באזי סודוקו גונה-א׳י האם אכְתראע כּארד כֵה חוש רא דאר זהן חַל מִי כּארד.
+חאפזה-י כאְרי או מי תואנֶסְת הַם-זמאן האפט תא נו בחש אטלאעאת רא דאר חוד נגַה דארד.
+באזי-האַי אנטזע׳י מסל שחְרנְג׳ וּ צ׳קרז רא בִדוֹן נַגאה בֵּה צַפְּה בא דּוֹ דַסְת דאר זהנש אגְ׳רא מִי כארד.
+גאה אז תַאִיֵד נַתָאיֵג זהני חוד בא מאשין חֵסאב-האַי אוּלִיֵה אגְ׳תנאב מִי כארד טא בה דאקאת זהנִי־אש אעתמאד כּונד.
+דַר פַאסוּח בֵּה אינתֵקאדְהַא, מי גפְת: «זהן מסל מהיְצֶה אסט; בא תַמרין קַווי מִי־שַוַד.»
+דַר חַפְז אעדאדֶה תָסַאדֹפִי, תכניכְהאַי שעכסִי-סאזִי-שודֶה דַאשְת...
+קֻדְרַת תַמרְכֻּזֶה זהנִי או דאר חַדִּי בּוּד כֵה פריאד דאסְתיַארַאנֶש הֵנְגַאם וַארֶד כַּרְדַנֶה אעדאד רא נְמִי שְנִיד.
+
+
+	
+</pre>
+<pre>
+The heat
+You are distracted when you cann't organiaze or structure your thought⚠️ you just wraping around waterfall of idea  ✅ 🥇 e.g how to setup services when you don't know how is it ? 
+⚠️ 🥇 HOLD IT AS TREE PER DAY⚠️ 🥇 
+redesign your time, value your time and programm it 
+focus is what you need to travel, no more dopamine or ecstasy
+====================
+
+==================== →→→→ work in CHAOS
+==================== →→→→ no EMOTION in face
+==================== →→→→ it's all Line/edge/weights you remeber not dot
+================ →→→→ and it's just giving meaning and pre-experienced 
+=========================→→→ Sleep, Nutrition, and Exercise
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
