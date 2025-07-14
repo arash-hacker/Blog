@@ -2466,6 +2466,7 @@ focus is what you need to travel, no more dopamine or ecstasy
 =========================→→→ Sleep, Nutrition, Mobile and Exercise
 </pre>
 <pre>
+	
 its about dicipslin and consistency that you don; follow pomodor and lose tracks
 it's also from movies that you dont plan and you think every thngs can lead to success because it's movie
 It was your childhood u wanted every thing . Hurry non telorant
