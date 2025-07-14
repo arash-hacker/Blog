@@ -2465,7 +2465,14 @@ focus is what you need to travel, no more dopamine or ecstasy
 ================ →→→→ and it's just giving meaning and pre-experienced 
 =========================→→→ Sleep, Nutrition, Mobile and Exercise
 </pre>
-<pre></pre>
+<pre>
+its about dicipslin and consistency that you don; follow pomodor and lose tracks
+it's also from movies that you dont plan and you think every thngs can lead to success because it's movie
+It was your childhood u wanted every thing . Hurry non telorant
+It only takes one mistake to collapse an empire.
+Water.air.earth(food).fire(sun)
+	
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
