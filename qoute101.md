@@ -2472,7 +2472,7 @@ it's also from movies that you dont plan and you think every thngs can lead to s
 It was your childhood u wanted every thing . Hurry non telorant
 It only takes one mistake to collapse an empire.
 Water.air.earth(food).fire(sun)
-	
+Focus is not only think without distract about something, but acknowledge distract and comeback to flow.	
 </pre>
 <pre></pre>
 <pre></pre>
