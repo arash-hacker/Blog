@@ -2474,7 +2474,11 @@ It only takes one mistake to collapse an empire.
 Water.air.earth(food).fire(sun)
 Focus is not only think without distract about something, but acknowledge distract and comeback to flow.	
 </pre>
-<pre></pre>
+<pre>
+metacognize
+NO NEED TO READ AND MEMORIZE IT.WHY IS IT LIKE THAT. if it makes sense its logical SO FIRST THINK, AND SIMULATE THEN CORRECT YOURSELF SIMULATION[MEM, FOC, STM OF CPU OR MEM] (EVEN CEHSS, First analyze urself. then correct your analyze)
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
