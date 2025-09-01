@@ -2477,7 +2477,7 @@ Focus is not only think without distract about something, but acknowledge distra
 <pre>
 metacognize
 NO NEED TO READ AND MEMORIZE IT.WHY IS IT LIKE THAT. if it makes sense its logical SO FIRST THINK, AND SIMULATE THEN CORRECT YOURSELF SIMULATION[MEM, FOC, STM OF CPU OR MEM] (EVEN CEHSS, First analyze urself. then correct your analyze)
-
+Focus is just holding a picture long enough to do task without distracting fom anything
 </pre>
 <pre></pre>
 <pre></pre>
