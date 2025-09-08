@@ -1867,6 +1867,12 @@ Ppl cant see solution bcs octo Sticked to one side or one piece 🧠♟️❤️
 <pre>points of game is not playing vs other. it's about knowing yourself. you are final rival and your mental system thinkgin</pre>
 <pre>
 AI game Engine
+ٔew chess types. knights with hexamove
+rook with catapult shugi move
+half bishop move 3-4
+branch based bishop
+* 4d rubik
+
 </pre>
 <pre></pre>
 <pre></pre>
