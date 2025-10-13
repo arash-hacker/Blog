@@ -2479,7 +2479,26 @@ metacognize
 NO NEED TO READ AND MEMORIZE IT.WHY IS IT LIKE THAT. if it makes sense its logical SO FIRST THINK, AND SIMULATE THEN CORRECT YOURSELF SIMULATION[MEM, FOC, STM OF CPU OR MEM] (EVEN CEHSS, First analyze urself. then correct your analyze)
 Focus is just holding a picture long enough to do task without distracting fom anything
 </pre>
-<pre></pre>
+<pre>
+	enjoy being in deep and just load as much as you can and extend only one unit per session(save your record for yourself.) 
+
+do you have sticky mind or slippery mind or iron? 
+does it control by love emotion? or focus or memory or attention or calculation? 
+physical / mental / emotional/ beauty 
+
+is it mbti or disc or game qunatom
+is it consipracy or real scenario
+is it this or that? how to seperate and be objective?
+is it as game scanior and game service/ 
+even computer industry
+::::: its all chart and diagram not pure data ☝️
+
+**if you dont put your target focus, you can't finish it, dont be foolish by seperate focus it must be accumelated. otherwise every problem can be solved in 100 years time range aka your mind can't handle that load focus**
+
+open politics / economy/ strategy
+point of google developer capaciryt speed range exp fc memory
+
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
