@@ -2498,6 +2498,7 @@ even computer industry
 open politics / economy/ strategy
 point of google developer capaciryt speed range exp fc memory
 
+	PPL are weak on points and jobs that they don't like: solution would be like the process not job itself.
 </pre>
 <pre></pre>
 <pre></pre>
