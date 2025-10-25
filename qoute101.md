@@ -2503,6 +2503,7 @@ point of google developer capaciryt speed range exp fc memory
 but if you analyse reflect and stick to fp, then you can faster it or fixin it.
 
 ⚠️  the point is how you are sticked to fact and iq to be successsfull not how much u r smart
+xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 </pre>
 <pre></pre>
 <pre></pre>
