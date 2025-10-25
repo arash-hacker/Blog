@@ -1873,6 +1873,8 @@ half bishop move 3-4
 branch based bishop
 * 4d rubik
 
+Gamification of Org hierarchy. Theme. Mission. Slack channel. News review - 1:1 battle. All in One but one in All. bigger meta verse
+
 </pre>
 <pre></pre>
 <pre></pre>
