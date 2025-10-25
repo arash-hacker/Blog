@@ -2499,6 +2499,10 @@ open politics / economy/ strategy
 point of google developer capaciryt speed range exp fc memory
 
 	PPL are weak on points and jobs that they don't like: solution would be like the process not job itself.
+	If you looking for score, ranking, numbers ... you willnever reach it. 
+but if you analyse reflect and stick to fp, then you can faster it or fixin it.
+
+⚠️  the point is how you are sticked to fact and iq to be successsfull not how much u r smart
 </pre>
 <pre></pre>
 <pre></pre>
