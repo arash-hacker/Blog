@@ -2507,7 +2507,10 @@ xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 	When playing and adding new condit to game, so you will have 10 spot at end and have good holistic vision of board overall. so they can't find peneteration.
 	Your quick and uncalculated act always ruin everything. It's better to lose by calculation ins of win by intuition or quick/chance . 
 </pre>
-<pre></pre>
+<pre>
+	The main reason ppl fail from data/ world perception is that they focus on one side of data(ins of 10 or more...) and analyze it from one perspective.
+	That cause misunderstading, consipracy, .. Thniking as whole system 
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
