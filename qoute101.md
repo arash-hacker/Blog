@@ -2510,6 +2510,10 @@ xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 <pre>
 	The main reason ppl fail from data/ world perception is that they focus on one side of data(ins of 10 or more...) and analyze it from one perspective.
 	That cause misunderstading, consipracy, .. Thniking as whole system 
+	
+ 
+⚠️❌🌟	If you are really fullstack or principal, you even use it in your daily life. and you believe on it. not just in your work , game , home, friends.
+	
 </pre>
 <pre></pre>
 <pre></pre>
