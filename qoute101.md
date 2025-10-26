@@ -2505,6 +2505,7 @@ but if you analyse reflect and stick to fp, then you can faster it or fixin it.
 ⚠️  the point is how you are sticked to fact and iq to be successsfull not how much u r smart
 xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 	When playing and adding new condit to game, so you will have 10 spot at end and have good holistic vision of board overall. so they can't find peneteration.
+	Your quick and uncalculated act always ruin everything. It's better to lose by calculation ins of win by intuition or quick/chance . 
 </pre>
 <pre></pre>
 <pre></pre>
