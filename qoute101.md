@@ -2513,7 +2513,7 @@ xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 	
  
 ⚠️❌🌟	If you are really fullstack or principal, you even use it in your daily life. and you believe on it. not just in your work , game , home, friends.
-	
+It's not because your theory doesn't match with experience, it's because your TST payload is not big enough to simulate realtime procedure. therefore you miss some details until you found in real practice.	
 </pre>
 <pre></pre>
 <pre></pre>
