@@ -2515,7 +2515,17 @@ xxx ooo	Bigger TST over time, cb on Escape / Tired / Distract.
 ⚠️❌🌟	If you are really fullstack or principal, you even use it in your daily life. and you believe on it. not just in your work , game , home, friends.
 It's not because your theory doesn't match with experience, it's because your TST payload is not big enough to simulate realtime procedure. therefore you miss some details until you found in real practice.	
 </pre>
-<pre></pre>
+<pre>
+
+	
+when you have goal, you focus on one goal only
+But when you havr simulation, you see everthing
+... 
+No need to hurry, sped come by rep
+No need to Struggle, stamina cime by rep
+No need to rep, rep is fo
+	Bigger 3FPTST over Pmodor, cb on Distract/Tired/Escape.
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
