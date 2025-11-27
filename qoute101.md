@@ -2525,6 +2525,7 @@ No need to hurry, sped come by rep
 No need to Struggle, stamina cime by rep
 No need to rep, rep is fo
 	Bigger 3FPTST over Pmodor, cb on Distract/Tired/Escape.
+	mistalkes are forgiven for whom put 100% of their effort and calcet eve 
 </pre>
 <pre></pre>
 <pre></pre>
