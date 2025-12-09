@@ -2527,7 +2527,11 @@ No need to rep, rep is fo
 	Bigger 3FPTST over Pmodor, cb on Distract/Tired/Escape.
 	mistalkes are forgiven for whom put 100% of their effort and calcet eve 
 </pre>
-<pre></pre>
+<pre>
+	کسی مه پلنره  قبل از اب خوردنشم پلندمیریزه
+کسی که متخصصه قبل از ظهور مشکل حلش میکنه
+کسی که پولداره مایدستش پولداره
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
