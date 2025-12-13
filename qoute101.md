@@ -2531,6 +2531,9 @@ No need to rep, rep is fo
 	کسی مه پلنره  قبل از اب خوردنشم پلندمیریزه
 کسی که متخصصه قبل از ظهور مشکل حلش میکنه
 کسی که پولداره مایدستش پولداره
+	Thinking ia buildin map.blick. dream is using one
+1 sec rul to not trigger s1
+ادمای تنبل عجولن. کارا یا همیشه عجوله یا پرکردنه
 </pre>
 <pre></pre>
 <pre></pre>
