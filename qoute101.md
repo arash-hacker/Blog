@@ -2519,7 +2519,7 @@ It's not because your theory doesn't match with experience, it's because your TS
 
 	
 when you have goal, you focus on one goal only
-But when you havr simulation, you see everthing
+But when you havr simulation, you see everthing(wo sys1)
 ... 
 No need to hurry, sped come by rep
 No need to Struggle, stamina cime by rep
