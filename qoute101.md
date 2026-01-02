@@ -2449,7 +2449,25 @@ Ppl believe to only option they have, tgy are coward to go deep in their doubt.
 קֻדְרַת תַמרְכֻּזֶה זהנִי או דאר חַדִּי בּוּד כֵה פריאד דאסְתיַארַאנֶש הֵנְגַאם וַארֶד כַּרְדַנֶה אעדאד רא נְמִי שְנִיד.
 
 
-	
+	Smartness = right goals + right plan + adaptation....smartness is having good strategy...Smartness includes accuracy, but also speed, adaptability, adnd judgment under constraints.Component	Included?
+
+Accuracy	✅ Yes
+Speed	✅ Often
+Adaptability	✅ Yes
+Strategy	✅ Yes
+Error recovery	✅ Yes
+Resource management (time, info)	✅ Yes
+Judgment under uncertainty	✅ Yes
+
+
+Long run smaetness::::
+Understanding the goal
+Using relevant knowledge
+Evaluating trade-offs
+Anticipating consequences
+Adjusting when wrong
+
+smartness: making accurate % decision ; even with less dta or luck
 </pre>
 <pre>
 The heat
