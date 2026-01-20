@@ -2551,7 +2551,8 @@ No need to rep, rep is fo
 کسی که پولداره مایدستش پولداره
 	Thinking ia buildin map.blick. dream is using one
 1 sec rul to not trigger s1
-ادمای تنبل عجولن. کارا یا همیشه عجوله یا پرکردنه
+ادمای تنبل عجولن. کارا یا همیشه عجوله یا پرکردنهیییییی
+	it's not educatino nor practical makes you expert it's only loading that has effect.
 </pre>
 <pre></pre>
 <pre></pre>
