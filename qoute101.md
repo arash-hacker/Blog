@@ -2554,7 +2554,12 @@ No need to rep, rep is fo
 ادمای تنبل عجولن. کارا یا همیشه عجوله یا پرکردنهیییییی
 	it's not educatino nor practical makes you expert it's only loading that has effect.
 </pre>
-<pre></pre>
+<pre>
+	qdbp
+quicker, deeper, bigger, prolonger
+face as device tracker
+Good source == good games
+</pre>
 <pre></pre>
 <pre></pre>
 <pre></pre>
